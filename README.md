@@ -53,7 +53,7 @@
 # BAHASA INDONESIA
 1.	Buku yang berisi kisahan atau cerita yang dibuat berdasarkan khayalan atau imajinasi  pengarang .
 
-Pernyataan tersebut merupakan pengertian dari . . . . 
+Pernyataan tersebut merupakan pengertian dari . . . . A
 
 A.	Buku Fiksi  
 
@@ -65,7 +65,7 @@ D.	Buku pengayaan
 
 
 
-2.	Salah satu contoh dari buku nonfiksi adalah . . . . 
+2.	Salah satu contoh dari buku nonfiksi adalah . . . . D
 
 A.	Puisi
 
@@ -77,7 +77,7 @@ D.	Biografi
 
 
 
-3.	Berikut ini yakni bagian-bagian (unsur-unsur )buku nonfiksi,kecuali . . . . 
+3.	Berikut ini yakni bagian-bagian (unsur-unsur )buku nonfiksi,kecuali . . . . C
 
 A.  Judul buku
 
@@ -89,7 +89,7 @@ D.   Bahasa yang digunakan
 
 
 
-4.	Setiap buku ,baik fiksi maupun nonfiksi yang sudah dibaca dapat kalian analisis berdasarkan . . . .
+4.	Setiap buku ,baik fiksi maupun nonfiksi yang sudah dibaca dapat kalian analisis berdasarkan . . . .C
 
 A. Nilai dan kehidupan
 
@@ -101,7 +101,7 @@ D. Struktur dan kebahasaan
 
 
 
-5.	Di bawah ini merupakan komentar buku fiksi . . . .
+5.	Di bawah ini merupakan komentar buku fiksi . . . .C
 
 A. Buku ini ditulis dengan sistematika yang runtut sehingga sangat mudah dipahami
 
@@ -113,7 +113,7 @@ D. Imajinasinya sangat kuat membangun plot cerita fantasi local yang tidak kalah
 
 
 
-6.	Berikut ini bukan hal yang harus kita lakukan saat meringkas buku . . . .
+6.	Berikut ini bukan hal yang harus kita lakukan saat meringkas buku . . . .B
 
 A. Membaca buku yang akan diringkas
 
@@ -125,7 +125,7 @@ D. Mencatat garis besar isinya dan merangkainya menjadi sebuah ringkasan
 
 
 
-7.	Karya tulis yang memiliki fungsi sebagai ruang akademisi bagi masyarakat umum untuk mengulas sebuah karya terbaru merupakan pengertian dari . . . .  
+7.	Karya tulis yang memiliki fungsi sebagai ruang akademisi bagi masyarakat umum untuk mengulas sebuah karya terbaru merupakan pengertian dari . . . .  B
 
 A. Teks Narasi
 
@@ -135,7 +135,7 @@ C. Teks Observasi
 
 D. Teks Eksplorasi  
 
-8.	Berikut ini yang bukan karya sastra adalah. . . .   
+8.	Berikut ini yang bukan karya sastra adalah. . . .   B
 
 A. Buku
 
@@ -147,7 +147,7 @@ D. Naskah drama
 
 
 
-9.	Berikut ini adalah sebuah kalimat yang mengungkapkan sebuah kelemahan buku,adalah . . . . 
+9.	Berikut ini adalah sebuah kalimat yang mengungkapkan sebuah kelemahan buku,adalah . . . . D
 
 A.	Cerita buku ini cukup menarik karena memperlihatkan karakter yang kuat
 
@@ -159,7 +159,7 @@ D.	Buku ini sebenarnya menarik ,tetapi penulis sering menggunakan istilah yang t
 
 
 
-10.	 Perbedaan antara buku fiksi dan nonfiksi adalah . . . .
+10.	 Perbedaan antara buku fiksi dan nonfiksi adalah . . . .C
 
 A.	Buku fiksi isinya berdasarkan kenyataan ,sedangkan nonfiksi berdasarkan karangan tidak nyata.
 
@@ -177,7 +177,7 @@ D.	Buku fiksi isinya menggambarkan suatu objek , sedangkan buku nonfiksi berisi 
 
        Tahun           :  2020
 
-     Merupakan identitas dari sebuah karya . . . .
+     Merupakan identitas dari sebuah karya . . . .D
 
 A.	Film
 
@@ -189,7 +189,7 @@ D.	Cerpen
 
 
 
-12.	 Alur yang dibuka dengan penceritaan kejadian masa lampau di awal cerita dan diselesaikan dengan konflik pada masa kini adalah . . .
+12.	 Alur yang dibuka dengan penceritaan kejadian masa lampau di awal cerita dan diselesaikan dengan konflik pada masa kini adalah . . . c
 
 A.	Jalan cerita
 
@@ -199,7 +199,7 @@ C.	Alur mundur
 
 D.	Alur Campuran
 
-13. Berikut ini yang merupakan ciri dari buku fiksi adalah . . . .
+13. Berikut ini yang merupakan ciri dari buku fiksi adalah . . . .C
 
 A. Menggunakan Bahasa formal
 
@@ -211,7 +211,7 @@ D. Berisi ide baru atau penyempurnaan dari ide yang telah ada sebelumnya
 
 
 
-14. Unsur yang dapat dikomentari dari buku nonfiksi adalah. . . .
+14. Unsur yang dapat dikomentari dari buku nonfiksi adalah. . . . A
 
 A. Isi buku  
 
@@ -227,7 +227,7 @@ D. Penokohan
 
    ![](BAHASA_INDONESIA/no15.jpg) 
 
-Buku yang termasuk fiksi ditunjukkan oleh nomor . . . .
+Buku yang termasuk fiksi ditunjukkan oleh nomor . . . .C
 
 A.	1
 
@@ -241,7 +241,7 @@ D.	4
 
 Parki ingin membantah kalau makanan bergizi itu bukan Cuma telur, masih ada tahu, tempe,kacang ,dan ikan,tetapi ibu tidak ingin mendengarkan. Menurut ibu ,komposisi gizi dalam sebutir telur sangat sempurna. Telur memiliki kalsium yang dibutuhkan Parki agar tulang-tulangnya kuat .Ibu ingin Parki tumbuh setinggi pemain-pemain basket Profesional.Jadi ,ia memasak telur setiap hari.Kadang telur itu direbus , kadang dibuat jadi telur mata sapi atau dijadikan telur dadar.
 
-Sifat tokoh ibu pada penggalan cerpen di atas adalah . . . .
+Sifat tokoh ibu pada penggalan cerpen di atas adalah . . . . D
 
 A.	Egois   
 
@@ -255,7 +255,7 @@ D.	Penyayang
 
 Ia dengar ibunya membisikkan kalimat itu di telinganya . Samar-samar ia rasakan nafas ibunya yang lemah napasnya, semakin lemah sejak beberapa hari terakhir ini ibunya hanya bisa terbaring tanpa bisa melakukan apa-apa lagi.Alesia ,gadis berwajah pucat itu, hanya bisa duduk di sisi tempat tidur,tangan kanannya menggenggam tangan sang ibu,ada rasa dingin yang seolah menyatu sebagai pusaran takdir, sebagai rangkaian ,sebagai rangkaian kesunyian yang telah lama menggumpal di rumah itu.
 
-Latar suasana yang tergambar dalam cerita adalah . . . .
+Latar suasana yang tergambar dalam cerita adalah . . . . A
 
 A. Kesedihan.  
 
@@ -265,7 +265,7 @@ C. Kegelisahan
 
 D. Kebingungan.
 
-18.Berikut yang termasuk buku nonfiksi adalah . . . .     
+18.Berikut yang termasuk buku nonfiksi adalah . . . .     D
 
 ![](BAHASA_INDONESIA/no18.jpg) 
 
@@ -275,7 +275,7 @@ A                             B       	                       C                 
 
                         
 
-19..Istilah lain dari teks ulasan adalah . . . .
+19..Istilah lain dari teks ulasan adalah . . . .A
 
 A. Resensi 
 
@@ -285,7 +285,7 @@ C. Komentar
 
 D. Referensi
 
-20. Berikut ini yang bukan pasangan padanan kata adalah . . . .  
+20. Berikut ini yang bukan pasangan padanan kata adalah . . . .  C
 
 A. Lunglai  = Lemah
 
@@ -297,7 +297,7 @@ D. Membuka = Menutup.
 
 
 
-21. Kalimat di bawah ini yang menggunakan makna konotasi adalah . . . . 
+21. Kalimat di bawah ini yang menggunakan makna konotasi adalah . . . . C
 
 A. Rianti adalah gadis yang suka menolong.
 
@@ -311,7 +311,7 @@ D. Rini selalu menjadi pembicaraan di kalangan anak muda.
 
 22.Malin Kundang sudah bersiap berpamitan dengan ibunya.Ia membawa bekal dan uang secukupnya untuk merantau di kota.Saat Malin mohon pamit,ibunya terlihat sedih dan sebenarnya  tidak rela jika anaknya meninggalkannya sendiri di desa.
 
-Ungkapan yang menggambarkan kondisi batin ibu Malin Kundang adalah . . . .  
+Ungkapan yang menggambarkan kondisi batin ibu Malin Kundang adalah . . . .  A
 
 A.	Berat hati  
 
@@ -325,7 +325,7 @@ D.	Berat sebelah
 
 23. Sulit sekali menemukan kekurangan novel ini.Semua unsur karya fiksi telah dipenuhi oleh pengarang  dengan cara yang cerdik. Novel ini cukup menghibur untuk dibaca oleh masyarakat umum.   
 
-Masalah yang dinilai dari kutipan tersebut adalah . . . . 
+Masalah yang dinilai dari kutipan tersebut adalah . . . . A
 
 A.Gaya bahasa yang dipakai
 
@@ -338,11 +338,11 @@ D.Kelebihan dan kekurangan isi novel
 
 
 
-24.Berikut ini yang tidak termasuk  karya novel adalah ….  
+24.Berikut ini yang tidak termasuk  karya novel adalah ….  C
 
    ![](BAHASA_INDONESIA/no24.jpg) 
 25. Dibandingkan dengan karya sastra sejenis lainnya ,Novel ini kurang berbobot.Lukisan perwatakan kurang begitu mendalam ,jalan ceritanya terkesan mendatar saja ,tidak ada hal-hal yang menarik perhatian pembaca. 
-Penggalan teks ulasan di atas merupakan bagian . . . .
+Penggalan teks ulasan di atas merupakan bagian . . . . C
 
 A.	Latar teks
 
