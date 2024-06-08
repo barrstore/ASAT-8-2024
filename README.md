@@ -724,92 +724,234 @@ d. Aku kesepian dalam hiruk pikuk taman kota
 Aku dalam sedih di tengah canda tawa di sekitarku.
 
 # BAHASA INDONESIA (TEKS PIDATO) 
+1.	Ada banyak sarana yang dapat digunakan untuk bisa meyakinkan orang lain. Salah satu cara tersebut adalah dengan metode… .B
 
+A. Diam
 
+B. Pidato 
 
+C. Tertawa
 
+D. Menangis
 
 
 
+2.	Berbicara memiliki beberapa tujuan. Salah satunya adalah… .D
 
+A. Menyalurkan bakat
 
+B. Tidak untuk tujuan apapun
 
+C. Untuk meyakinkan diri sendiri
 
+D. Untuk meyakinkan orang lain    
 
 
 
+3.  Aktivitas untuk berbicara di depan orang banyak demi menyampaikan ide gagasan atau pendapat secara    lisan  adalah pengertian dari teks… .D
 
+A. Cerpen
 
+B. Tanggapan
 
+C. Eksplanasi
 
+D. Pidato persuasive    
 
+4. Berikut ini adalah beberapa jenis teks pidato persuasif, kecuali… .D
 
+      A. Ceramah
 
+B. Sambutan  
 
+C. Pidato resmi
 
+D. Pidato pemerintahan
 
+5.  Ketua pramuka memberikan sambutan dalam pembukaan musyawarah untuk persiapan hari pramuka Dunia.
 
+     Sambutan yang tepat untuk pidato pada paragaraf tersebut adalah . . . .D
 
+A.	Teman-teman sekalian, mari kita mengingat sedikit pengorbanan para pejuang memperjuangkan Pramuka Indonesia.
 
+B.	Teman-teman sekalian, hari ini adalah hari di mana Hari Pramuka diperingati. Oleh karena itu, marilah Kita bersama mengheningkan cipta.
 
+C.	Teman-teman pengurus Pramuka yang saya cintai, mari kita panjatkan puji syukur
 
+kehadirat Tuhan   Yang Maha Esa karena pada saat ini bisa memeriahkan Hari Pramuka.
 
+D.	Teman-teman pengurus Pramuka yang saya cintai, mari kita panjatkan puji syukur kehadirat Tuhan Yang Maha Esa karena pada saat ini kita bisa berkumpul di ruangan ini dalam keadaan sehat untuk membahas mengenai perayaan Hari Pramuka
 
 
 
+6.  Teks pidato dari instansi pemerintah untuk memerintah masyarakat. Pidato tersebut berisi mengenai berita atau informasi resmi menyangkut kebijakan yang dikeluarkan pemerintah dalam bentuk pengumuman adalah…D
 
+A. Ceramah
 
+B. Sambutan
 
+C. Pidato instansi
 
+D. Pidato resmi pemerintah   
 
+7.Pidato yang menggunakan metode mengingat atau menghafal teks adalah…B
 
+A. Manuskrip
 
+B. Memoriter   
 
+C. Impromptu
 
+D. Ekstemporan
 
+8.Pidato yang dilakukan dengan cara membaca disebut dengan…A
 
+A. Manuskrip   
 
+B. Memoriter
 
+C. Impromptu
 
+D. Ekstemporan
 
 
 
+9. Seseorang berpidato dengan cara menulis pokok-pokok pikiran yang akan disampaikan dalam pidato. Setelah itu, dia menyampaikan permasalahan dengan menggunakan bahasanya sendiri. Orang tersebut berpidato menggunakan teknik…D
 
+A. Naskah
 
+B. Menghafal
 
+C. Impromptu
 
+D. Ekstemporan   
 
 
 
+10.. Para tamu undangan yang saya hormati, izinkan saya mewakili semua teman-teman menyampaikan kesan selama menempuh pendidikan di sini. Selama saya menjalani 3 tahun di sini, Bapak/Ibu selalu membimbing saya. Kami tidak hanya diberikan ilmu pengetahuan, tetapi juga budi pekerti. Saya berharap bahwa semua dapat menjadi bekal kami dalam menjalani hidup yang bermanfaat. Kutipan tersebut merupakan…C
 
+A. Harapan 
 
+B. Rasa syukur
 
+C.Terima kasih
 
+D. Permintaan maaf
 
 
 
+11. Berikut ini adalah beberapa jenis teks pidato persuasif, kecuali…D
 
+A. Ceramah
 
+B. Sambutan
 
+C. Pidato resmi
 
+D. Mendongeng.  
 
 
 
+12.   Pada kesempatan kali ini, marilah kita panjatkan puji syukur kehadirat Tuhan yang Maha Esa karena hanya Tuhan  yang telah memberikan rahmat dan hidayah-Nya semua sehingga kita bisa berjumpa pada siang hari ini
 
+       Selain ucapan rasa syukur, ucapan di atas merupakan…B
 
+A.	Tujuan berpidato
 
+B.	Puji-pujian untuk Tuhan  
 
+C.	Terimakasih kepada tuan rumah
 
+D.	Undangan kepada setiap orang
 
+13.  Teks pidato persuasive adalah. . . .D
 
+A. Teks pidato yang digunakan untuk memberikan pendapat dan fakta.
 
+B. Teks pidato yang isinya menjelaskan suatu proses kepada khalayak.
 
+C. Teks pidato yang digunakan untuk menggambarkan suatu keadaan
 
+D. Teks pidato yang isinya bujukan atau imbauan untuk memengaruhi pendengarnya
 
+14.  Bagian Teks pidato persuasive yang berisi ucapan puji syukur adalah . . . . D
 
-           
+A. Isi
 
+B. Penutup
 
+C. Simpulan
 
+D. Pembuka
 
+15. Kata sapaan yang tepat jika sasaran pidato adalah siswa dan orang yang pidato juga siswa   dengan level  yang sama adalah. . . .A
 
+A. Teman-temanku yang kuhormati.
+
+B. Teman-temanku yang kusegani
+
+C. Teman -temanku yang kusayangi 
+
+D. Teman-temanku yang kutakzimi
+
+16. Sebutan untuk orang yang pandai berpidato adalah . . . . A
+
+A. Orator
+
+B. Operator
+
+C. Moderator
+
+D. Deklamator
+
+
+
+
+
+
+
+17. Salah satu ciri dalam penutup pidato persuasive adalah adanya . . . .C
+
+A. Sapaan hormat
+
+B. Materi inti pidato
+
+C. Permohonan maaf 
+
+D. Ucapan puji syukur
+
+18. Kelengkapan koleksi buku terbukti meningkatkan jumlah pengunjung di perpustakaan .
+
+Antonim kata “ meningkatkan “ adalah . . . .B
+
+A.	Menaikkan
+
+B.	Menurunkan      
+
+C.	Merendahkan
+
+D.	Menggelembungkan 
+
+19. Sebelum menulis teks pidato ,agar isinya sistematis kita bisa membuat . . . .C
+
+A. Rangkuman
+
+B. Rubrik penilaian
+
+C. Kerangka pidato
+
+D. Pertanyaan-pertanyaan
+
+20. Perhatikan penggalan teks pidato di bawah ini!
+
+Menurut hasil tes PISA tahun 2018 ,Indonesia menempati peringkat ke-74 dari 79 negara.Tentinya hasil ini semakin membuktikan rendahnya daya literasi remaja kita .
+
+Kata “ Literasi “adalah kata teknis di bidang . . . .D
+
+A.	Politik
+
+B.	Budaya
+
+C.	Ekonomi
+
+D.	Pendidikan     
