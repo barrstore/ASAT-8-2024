@@ -50,7 +50,7 @@
 ![](PAIBP/48.jpg) 
 ![](PAIBP/49.jpg) 
 ![](PAIBP/50.jpg) 
-# BAHASA INDONESIA
+# BAHASA INDONESIA (KARYA PUISI) 
 1.	Buku yang berisi kisahan atau cerita yang dibuat berdasarkan khayalan atau imajinasi  pengarang .
 
 Pernyataan tersebut merupakan pengertian dari . . . . A
@@ -353,7 +353,7 @@ C.	Kelemahan teks
 D.	Keunggulan teks
 
 
-
+# BAHASA INDONESIA (TEKS PUISI) 
 1.Ketika membaca sebuah puisi,kita harus memperhatikan irama.Hal ini bertujuan agar . . . .        C
 
 a. Memukau penonton
@@ -715,18 +715,15 @@ a. Penguasa malam datang
    Membawa mimpi ke setiap insan
 
 b. Waktu seperti burung tanpa hinggapan     
-
-    melewati hari-hari rubuh tanpa ratapan
+  melewati hari-hari rubuh tanpa ratapan
 
 c. Aku mencintaimu dengan segalanya
-
-    Cintaku padamu sedalam samudra setinggi langit ketujuh
-
+ Cintaku padamu sedalam samudra setinggi langit ketujuh
+    
 d. Aku kesepian dalam hiruk pikuk taman kota
+Aku dalam sedih di tengah canda tawa di sekitarku.
 
-    Aku dalam sedih di tengah canda tawa di sekitarku.
-
-
+# BAHASA INDONESIA (TEKS PIDATO) 
 
 
 
