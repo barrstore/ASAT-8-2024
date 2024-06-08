@@ -955,3 +955,239 @@ B.	Budaya
 C.	Ekonomi
 
 D.	Pendidikan     
+
+# PENDIDIKAN PANCASILA KEWARGANEGARAAN (PPKn) 
+1.	Tahukan kalian sebuah  bangunan, ? Semakin tinggi bangunan, maka semakin dalam pula fondasinya. Mengapa? Karena Fondasi itulah yang menopang tegaknya  bangunan tersebut. Ia akan tetap tegak berdiri meski dihempas badai. Begitu  juga sebuah pohon ,  Apa yang membuat pohon tegak dan kokoh? Ya, akar yang menghunjam ke dalam tanah, menjadikan pohon tegak tinggi menjulang, demikian halnya Pancasila merupakan fondasi bagi tegaknya Bangsa Indonesia. Semakin kokoh pengamalan Pancasila dalam bernegara, maka semakin kokoh pula bangunan Negara Indonesia. Ilustrasi tersebut merupakan gambaran ….D
+
+A.	Pancasila sebagai Dasar Negara 
+
+B.	Pancasila sebagai  Pandangan Negara
+
+C.	Pancasila sebagai  cita – cita  Negara
+
+D.	Pancasila sebagai tujuan  Negara
+
+
+
+2.	“ Dalam Pembukaan Undang-undang Dasar Negara Repu- blik Indonesia Tahun 1945 (UUD NRI Tahun 1945)   pada   alinea   keempat, yaitu “…maka disusunlah kemerdekaan Kebangsaan   Indonesia   itu    dalam suatu Undang-undang Dasar Negara Indonesia,   yang   terbentuk    dalam suatu susunan negara Indonesia yang berkedaulatan rakyat dengan berdasar kepada Ketuhanan Yang Maha Esa, kemanusiaan yang adil dan beradab, persatuan Indonesia, dan kerakyatan yang dipimpin oleh hikmat kebijaksaan dalam permusyawaratan/perwakilan, serta dengan mewujudkan suatu keadil- an sosial bagi seluruh rakyat Indonesia.” pada kalimat “…negara Indonesia yang berkedaulatan rakyat dengan berdasar kepada…”, menegaskan bahwa dasar Negara Indonesia adalah  Pancasila. Pancasila sebagai dasar negara mengandung konsekuensi bahwa setiap aspek penyelenggaraan negara mesti mengacu dan sesuai dengan ….B
+
+A.  Budaya Bangsa 
+
+B.	Nilai- nilai Pancasila
+
+C.	Keinginan rakyat
+
+D.	Kepentingan bangsa 
+
+3.	Rumusan Pancasila yang syah secara yuridis konstitusional berlaku dan mengikat seluruh lembaga negara, lembaga masyarakat, dan setiap warga negara.terdapat dalam ....C
+
+A.	Alinea kedua Pembukaan UUD NRI Tahun 1945 
+
+B.	Alinea ketiga Pembukaan UUD NRI Tahun 1945
+
+C.	Alinea keempat Pembukaan UUD NRI Tahun 1945 
+
+D.	Alinea kelima Pembukaan UUD NRI Tahun 1945
+
+ 
+
+4.	Kalian pasti memiliki nilai-nilai dalam diri yang menjadi acuan bagi kalian dalam bergaul, baik dalam kehidupan di sekolah maupun sehari-hari. Nilai- nilai itu terbentuk dari serangkaian proses belajar dan pengalaman hidup yang kalian jalani sampai saat ini. Lalu, nilai-nilai itu membentuk pandangan hidup kalian.Demikianlah gambaran Pancasila bagi Negara dan Bangsa Indonesia. Pancasila merupakan kristalisasi dari pengalaman hidup dalam sejarah panjang bangsa Indonesia yang telah membentuk karakter, perilaku, etika, tata nilai dan norma yang telah membentuk menjadi ....D
+
+A.	Dasar Negara
+
+B.	Kekuatan Negara  
+
+C.	Kepribadian bangsa 
+
+D.	Pandangan hidup bangsa.
+
+
+
+5.	Pancasila merupakan nilai-nilai dasar dan luhur Bangsa Indonesia yang menjadi acuan serta pandangan hidup bangsa, merupakan pengertian Pancasila sebagai ....C
+
+A.	Pandangan Hidup Bangsa 
+
+B.	Dasar Negara
+
+C.	Kepribadian Bangsa
+
+D.	Cita – cita Bangsa
+
+
+
+
+
+
+
+6.	Nilai ketuhanan menjadikan bangsa Indonesia sebuah bangsa yang religius. Nilai-nilai agama terinternalisasi dalam diri dan terimplementasikan dalam kehidupan sehari-hari. Bangsa Indonesia adalah bangsa yang bertakwa kepada Tuhan Yang Maha Esa. Maka, pandangan hidup ini mewarnai berbagai aspek kehidupan berbangsa dan bernegara.Sebagai contoh dalam bidang pendidikan, maka disusunlah tujuan pendidikan nasional, sebagaimana termaktub dalam Undang-undang Nomor 20 tahun 2003 tentang Sistem Pendidikan Nasional, pada pasal 3 tertulis, “Tujuan pendidikan nasional adalah untuk mengembangkan potensi peserta didik agar menjadi manusia yang ....A
+
+A.	Beriman dan bertakwa kepada Tuhan Yang Maha Esa, berakhlak mulia”
+
+B.	Kuat kepribadiannya
+
+C.	Cerdas, terampil dan mandiri
+
+D.	Sukses menjadi morang yang berguna bagi bangsa.
+
+7.	Berdasarkan teori norma Hans Nawiasky, sebagaimana dikutip oleh Dimas Hutomo, die Stuferordnung der Rechtnormen (teori hierarki hukum), terdapat jenis dan tingkatan suatu aturan, yaitu pertama, staatsfundamentalnorm (Norma fundamental negara/abstrak/sumber hukum, contoh: Pancasila); kedua, staatsgrundgesetz (Aturan dasar/aturan pokok negara/konstitusi/ UUD); ketiga, formell gesetz (Undang-undang); keempat, verordnung & utonome satzung (Aturan pelaksana/Peraturan Pemerintah, Peraturan Daerah).Merujuk pada teori di atas, maka Pancasila menempati posisi staatsfundamentalnorm sebagai ….A
+
+A.	Sumber dari segala sumber hukum negara.
+
+B.	Kekuatan moral Negara
+
+C.	Acuan dalam penyelenggaraan negara
+
+D.	Dasar dalam penyelenggaraan negara
+
+8.	Pancasila merupakan sumber segala sumber hukum negara, maka setiap produk hukum yang dihasilkan negara tidak boleh bertentangan dengan nilai dasar Pancasila. Setiap sila Pancasila merupakan nilai dasar atau prinsip, sedangkan hukum adalah nilai instrumental atau penjabaran dari nilai dasar. Karenanya, dalam merumuskan hukum dan peraturan negara mesti bernafaskan pada sila-sila dalam Pancasila. Hal tersebut ditegaskan dalam ....A
+
+A.	Pasal 1 Undang-undang Nomor 12 Tahun 2011
+
+B.	Pasal 2 Undang-undang Nomor 12 Tahun 2011
+
+C.	Pasal 3 Undang-undang Nomor 12 Tahun 2011
+
+D.	Pasal 4 Undang-undang Nomor 12 Tahun 2011
+
+9.	Sila keadilan sosial bagi seluruh rakyat Indonesia mesti menjadi acuan dalam merumuskan hukum dan peraturan guna mewujudkan kesejahteraan sosial yang adil bagi seluruh rakyat Indonesia maka tidak boleh ada perangkat hukum yang menguntungkan ....D
+
+A.	Segolongan orang 
+
+B.	Kelompok tertentu 
+
+C.	Kepentingan pejabat
+
+D.	Semua benar 
+
+10.	Dalam kehidupan berbangsa dan bernegara. Pancasila merupakan sumber dari segala sumber hukum Negara Indonesia. Pancasila  berfungsi sebagai sumber hukum yang mengatur tata kelola berbangsa dan bernegara serta menjadi acuan dalam merumuskan aturan dan hukum yang                 berlaku di Indonesia semuanya harus bersumber pada ….C
+
+A.	Penguasa
+
+B.	Presiden
+
+C.	Pancasila
+
+D.	UUD NRI MTahun 1945
+
+
+
+
+
+
+
+
+
+
+
+
+
+11.	Cermati kepribadian teman-temanmu! Mungkin kalian akan mendapati ada temanmu yang cenderung kaku dan disiplin, ada yang fleksibel dan mudah beradaptasi, ada pula yang cara berpikirnya sederhana dan tidak mau ambil pusing. Itu semua dipengaruhi oleh latar belakang keluarga, lingkungan yang membentuk dan membesarkan, dan faktor lainnya. Bangsa Indonesia memiliki watak, karakter, dan perilaku yang mencerminkan nilai- nilai Pancasila. Watak dan karakter ini membentuk kepribadian Bangsa Indonesia yang membedakannya dengan kepribadian bangsa-bangsa lain. Demikianlah gambaran Pancasila sebagai ....A
+
+A.	Pandangan Hidup 
+
+B.	Kepribadian bangsa
+
+C.	Tujuan negara 
+
+D.	Pedoman Hidup
+
+12.	Era globalisasi yang membuat dunia seperti tanpa batas, memiliki tantangan tersendiri bagi Bangsa Indonesia. Tidak sedikit masyarakat Indonesia, khususnya generasi mudanya, yang mengalami krisis identitas. Mereka seperti kehilangan jati dirinya sebagai Bangsa Indonesia. Mereka meniru kepribadian bangsa-bangsa lain yang dianggap keren dan modern. Padahal, itu bertentangan dengan ....D
+
+A.	Nilai-nilai Pancasila
+
+B.	Pandangan Hidup 
+
+C.	Kepribadian bangsa
+
+D.	Semua Benar
+
+13.	Kepribadian bangsa Indonesia yang tercermin dari sikap hidup taat menjalankan ajaran agama. Berusaha senantiasa meningkatkan keimanan dan ketakwaan kepada Tuhan Yang Maha Esa. Mewujudkan kerukunan antar umat beragama. Mengembangkan sikap saling menghormati dan menghargai antarumat beragama, merupakan kepribadian Bangsa Indonesia yang terwarnai oleh sila ....A
+
+A.	Pertama
+
+B.	Kedua
+
+C.	Ketiga
+
+D.	Keempat
+
+14.	Kepribadian Bangsa Indonesia yang mengembangkan sikap adil terhadap sesama. Menghormati hak orang lain, gemar memberikan pertolongan. Menjaga keseimbangan antara hak dan kewajiban, serta suka menghargai hasil karya orang lain yang bermanfaat bagi kemajuan bangsa dan kesejahteraan bersama. Merupakan kepribadian Bangsa Indonesia yang terwarnai oleh sila ...D
+
+A.	Kedua
+
+B.	Ketiga
+
+C.	Keempat
+
+D.	Kelima
+
+15.	Dalam Pancasila terkandung cita-cita dan tujuan bangsa yang menjadikan Pancasila sebagai alat pemersatu bangsa. Tujuan akhirnya adalah untuk mewujudkan masyarakat Indonesia yang merdeka, bersatu, berdaulat, adil, dan makmur, baik material terlebih spiritual yang berdasarkan Pancasila.
+
+Selain itu, dalam Pembukaan UUD NRI Tahun 1945 disebutkan pula tujuan bangsa Indonesia, yaitu melindungi segenap bangsa Indonesia dan seluruh tumpah darah Indonesia, memajukan kesejahteraan umum, dan mencerdaskan kehidupan bangsa, serta ikut melaksanakan ketertiban dunia yang berdasarkan kemerdekaan, perdamaian abadi, dan keadilan sosial. Cita-cita dan tujuan bangsa yang didasari nilai-nilai Pancasila ini mesti diterjemahkan dalam....D
+
+A.	Program - program pembangunan
+
+B.	Rencana – rencana pembangunan
+
+C.	Rancangan – rancangan pembangunan
+
+D.	Pelaksanaan Pembangunan
+
+
+
+16.	Bentuk negara Indonesia ditegaskan dalam pasal 1 ayat 1 Undang- undang Dasar Negara Republik Indonesia Tahun 1945 (UUD NRI Tahun 1945), bentuk negara Indonesia adalah ....A
+
+A.	Republik
+
+B.	Kesatuan
+
+C.	Desentralisasi
+
+D.	Sentralisasi 
+
+17.	Hubungan/ relasi antara pemerintah pusat dengan pemerintah daerah sebagai perwujudan bentuk Negara Kesatuan Republik Indonesia ditegaskan dalam ....B
+
+A.	Pasal 16 ayat 1 UUD NRI Tahun 1945,
+
+B.	Pasal 17 ayat 1 UUD NRI Tahun 1945,
+
+C.	Pasal 18 ayat 1 UUD NRI Tahun 1945,
+
+D.	Pasal 19 ayat 1 UUD NRI Tahun 1945,
+
+
+
+18.	Berdasarkan Pasal 18 ayat 1 UUD NRI Tahun 1945, Negara Kesatuan Republik Indonesia dibagi atas daerah-daerah provinsi dan daerah provinsi itu dibagi atas kabupaten dan kota, yang tiap-tiap provinsi, kabupaten, dan kota itu mempunyai pemerintahan daerah yang diatur dengan ....C
+
+A.	 Undang-undang.
+
+B.	 Peraturan Pemerintah
+
+C.	Keputusan MPR
+
+D.	Ketetatapan DPR
+
+19.	Sebelum terbentuk Negara Republik Indonesia, nusantara ini berupa kerajaan-kerajaan Islam dan masa sebelumnya kerajaan-kerajaan Hindu- Budha. Kerajaan-kerajaan tersebut mengambil bentuk pemerintahan monarki. Suksesi atau pergantian kepemimpinan dilakukan turun-temurun. Dari sekian anak raja atau sultan, dipilih yang terbaik untuk menggantikan raja atau sultan ketika sudah meninggal. Namun setelah Indonesia merdeka, para pendiri bangsa bermusyawarah untuk menentukan bentuk pemerintahan Negara Indonesia. Setelah disepakati bentuk negaranya kesatuan, lalu disepakati pula bentuk pemerintahan yang suksesi  kepemimpinannya  tidak berdasarkan turun-temurun, melainkan melalui pemilihan. Bentuk Pemerintahan tersebut di namakan bentuk pemerintahan ...B
+
+A. Serikat
+
+B. Republik
+
+C. Presidensiil
+
+D. Parlementer
+
+
+
+20.	Bentuk pemerintahan republik ini, bila dalam lingkup sekolah terwujud pada Organisasi Siswa Intra Sekolah (OSIS). Setiap siswa berhak dan berpeluang menjadi Ketua OSIS. Suksesi Ketua OSIS dilakukan melalui  mekanisme pemilihan umum oleh ....C
+
+A.	Majelis Permusyawaratan Kelas (MPK)
+
+B.	Seluruh siswa
+
+C.	Seluruh organisasi
+
+D.	Kepala sekolah
+
+
+
