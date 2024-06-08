@@ -225,7 +225,7 @@ D. Penokohan
 
 15.Perhatikan kumpulan gambar sampul buku berikut !   
 
-    
+   ! [.](BAHASA_INDONESIA/no15.jpg) 
 
 Buku yang termasuk fiksi ditunjukkan oleh nomor . . . .
 
@@ -267,7 +267,7 @@ D. Kebingungan.
 
 18.Berikut yang termasuk buku nonfiksi adalah . . . .     
 
-
+! [.](BAHASA_INDONESIA/no18.jpg) 
 
 A                             B       	                       C                                 D          												
 
@@ -343,15 +343,9 @@ D.Kelebihan dan kekurangan isi novel
 
 24.Berikut ini yang tidak termasuk  karya novel adalah ….  
 
-       A    			B.                      C                        D
-
- 
-
-
-
+   ! [.](BAHASA_INDONESIA/no24.jpg) 
 25. Dibandingkan dengan karya sastra sejenis lainnya ,Novel ini kurang berbobot.Lukisan perwatakan kurang begitu mendalam ,jalan ceritanya terkesan mendatar saja ,tidak ada hal-hal yang menarik perhatian pembaca. 
-
-       Penggalan teks ulasan di atas merupakan bagian . . . .
+Penggalan teks ulasan di atas merupakan bagian . . . .
 
 A.	Latar teks
 
