@@ -354,6 +354,416 @@ D.	Keunggulan teks
 
 
 
+1.Ketika membaca sebuah puisi,kita harus memperhatikan irama.Hal ini bertujuan agar . . . .        C
+
+a. Memukau penonton
+
+b. Puisi lebih mudah dipahami
+
+c. Tidak terlalu cepat atau lambat      
+
+d. Membuat puisi jadi lebih menarik
+
+
+
+2.Berikut ini adalah struktur fisik dari sebuah puisi,kecuali . . . .       D    
+
+ a. Diksi 
+
+ b. Imaji
+
+ c. Rima
+
+ d. Amanat    
+
+
+
+3. Puisi cenderung menggunakan sebuah Bahasa yang bersifat . . . .  B        
+
+a. Denotatif
+
+b. Konotatif     
+
+c. Leksikal
+
+d. Gramatikal
+
+
+
+4. Pemilihan kata dalam menulis sebuah puisi disebut dengan istilah . . . .     B
+
+a. Imaji
+
+b. Diksi     
+
+c. Majas
+
+d. Tipografi
+
+
+
+5. Persamaan bunyi yang digunakan oleh penyair dalam penulisan puisi disebut dengan istilah . . . .        A
+
+a. Rima     
+
+b. Majas
+
+c. Tiruan bunyi
+
+d. Pengulangan kata
+
+6. Membaca sebuah puisi secara berulang-ulang memiliki tujuan untuk . . . .     C
+
+a. Melatih artikulasi vocal
+
+b. Melatih pernapasan agar tidak pengap
+
+c. Lebih memahami isi serta cara membaca puisi     
+
+d. Menghapal puisi agar penampilan menjadi lebih bagus
+
+
+
+7. Di bawah ini merupakan beberapa hal yang perlu diperhatikan Ketika membaca puisi , kecuali . . . .          C
+
+a. Vokal ,ekspresi ,dan rima
+
+b. Intonasi , ekspresi ,dan vocal    
+
+c. Penghayatan,ekspresi,dan rima
+
+d. Mimik ,penghayatan,dan intonasi
+
+
+
+8. Agar membacakan puisi dengan baik kamu harus mampu untuk . . . . C
+
+a. Menjiwai puisi yang kamu bacakan.
+
+b. Membaca puisi dengan percaya diri yang tinggi
+
+c. Mengetahui Teknik cara membacakan puisi dengan baik.
+
+d. Memahami suasana, menghayati tema,dan makna puisi.  
+
+
+
+9. Tujuan membaca sebuah puisi dalam hati secara berulang-ulang adalah . . . .   D
+
+a. Menghapal puisi
+
+b. Memahami puisi
+
+c. Berlatih membaca dengan baik
+
+d. Memahami isi dan cara membaca puisi   
+
+
+
+10.Puisi memiliki ciri-ciri khusus yang membedakan dengan karya sastra lain.Berikut ciri-ciri puisi yang tepat adalah . . . .      C
+
+a. Teks hanya mengandung makna denotasi
+
+b. Bahasa lugas dan tidak banyak mengandung kiasan.
+
+c. Bahasa padat dan mengutamakan keindahan kata-kata   
+
+d. Berbentuk prosa dan menggunakan pola Bahasa yang renggang. 
+
+
+
+Pahlawan Tak Dikenal
+
+Sepuluh tahun yang lalu, dia terbaring
+
+Tetapi bukan tidur, sayang
+
+Sebuah lubang peluru bundar di dadanya
+
+Senyum bekunya berkata, kita sedang perang 
+
+
+
+Dia tidak tahu bilamana ia datang
+
+Kedua tangannya memeluk senapan
+
+Dia tidak tahu untuk siapa dia datang
+
+Kemudian dia terbaring, tetapi bukan tidur, sayang 
+
+............................
+
+(Toto Sudarto Bahtiar)
+
+
+
+11.Puisi di atas menuturkan tentang ...C
+
+a. Seseorang yang sedang berjuang di medan perang                   
+
+b. Pemimpin perang sedang memimpin pertempuran
+
+c. Kematian seorang pejuang karena tertembak      
+
+d.Seseorang yang terbaring sakit karena tertembak di medan pertempuran
+
+
+
+12. Rima puisi Pahlawan Tak Dikenal bait pertama adalah ...        D
+
+a. a-b-a-b
+
+b. b-a-a-a     
+
+c. a-b-b-a
+
+d. a-a-b-a
+
+
+
+13. Keindahan puisi di atas terlihat dari kepandaian penyair memilih kata. Salah satunya adalah kata terbaring. Makna kata tersebut adalah ...              D
+
+a. Tidur
+
+b. Pingsan
+
+c. Sakit
+
+d. Gugur      
+
+
+
+14. Orang yang diungkapkan dalam puisi Pahlawan Tak Dikenal adalah seorang yang ikhlas membela bangsa, yang diisyaratkan dengan kalimat ...            B
+
+a. Dia berbaring tetapi bukan tidur
+
+b. Dia tidak tahu bilamana dia dating     
+
+c. Dia memeluk senapan
+
+d. Ada sebutir peluru di dadanya
+
+
+
+
+
+15. Tubuh biru
+
+Tatapan mata biru
+
+Lelaki terguling di jalan
+
+Lewat gardu Belanda dengan bumi
+
+Berlindung warna malam
+
+Sendiri masuk kota 
+
+Ingin ikut ngubur ibunya
+
+
+
+Tema puisi tersebut adalah ... D
+
+a. Perlawanan
+
+b. Keberanian
+
+c. Kekejaman
+
+d. Perjuangan      
+
+
+
+16. Bila kasih mu ibarat samudra
+
+Sempit lautan tuduh
+
+Tempat ku mandi, mencuci lumut pada diri
+
+Tempat ku berlayar, menebar pukat dan melempar sauh
+
+Kalau aku ujian kemudian ditanya tentang pahlawan
+
+Nama ku yang ku sebut paling dahulu
+
+Lantaran ku tahu
+
+Engkau ibu dan aku anak mu
+
+
+
+Isi puisi tersebut menggambarkan ...	D
+
+a. Kesedihan seorang anak
+
+b. Kegelisahan hati seorang anak
+
+c. Perasaan rindu seorang anak kepada ibunya
+
+d. Perasaan sayang seorang anak kepada ibunya        
+
+
+
+17. Perhatikan penggalan puisi berikut:
+
+Dalam ribaan bahagia datang
+
+Tersenyum bagai kencana
+
+Mengharum bagai cendana ...
+
+
+
+
+
+
+
+Dari penggalan puisi tersebut terdapat gaya bahasa: D
+
+a. Hiperbola
+
+b. Metafora
+
+c. Litotes
+
+d. Asosiasi       
+
+
+
+18. Bacalah puisi berikut!
+
+
+
+Perpisahan
+
+
+
+Akhirnya peluit pun dibunyikan
+
+Buat penghabisan kali kugenggam jarmu
+
+Lewat celah kaca jendela
+
+Lalu perlahan-lahan jarak antar kita
+
+Mengembang jua
+
+Dan tinggallah rel-rel, peron dan lampu
+
+Yang menggigil di angin senja
+
+
+
+Baris ke-6 dan ke-7 puisi tersebut menggunakan majas ...A
+
+a. Personifikasi     
+
+b. Metafora
+
+c. Litotes
+
+d. Asosiasi
+
+
+
+19. Perhatikan penggalan puisi berikut!
+
+
+
+Karangan Bunga
+
+
+
+Tiga anak kecil
+
+Dalam langkah malu-malu
+
+Datang ke Salemba
+
+Ini dari kami bertiga
+
+Pita hitam dalam karangan bunga
+
+Sebab kami ikut berduka
+
+Bagi kakak yang tertembak mati tadi siang
+
+
+
+Karya Taufik Ismail
+
+
+
+Tema dalam puisi tersebut adalah ... B
+
+a. Ketuhanan
+
+b. Kemanusiaan     
+
+c. Percintaan
+
+d. Religius
+
+
+
+20. Kalimat puisi berikut yang mengandung majas simile adalah . . . .C
+
+a. Penguasa malam datang 
+
+   Membawa mimpi ke setiap insan
+
+b. Waktu seperti burung tanpa hinggapan     
+
+    melewati hari-hari rubuh tanpa ratapan
+
+c. Aku mencintaimu dengan segalanya
+
+    Cintaku padamu sedalam samudra setinggi langit ketujuh
+
+d. Aku kesepian dalam hiruk pikuk taman kota
+
+    Aku dalam sedih di tengah canda tawa di sekitarku.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
