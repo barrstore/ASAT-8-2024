@@ -243,5 +243,8 @@ B.	Salah
 
 34.	Sebuah proses yang digunakan untuk meminta masukan dari pengguna dan hasil masukannya akan disimpan dalam sebuah variabel adalah….INPUT
 
-
+![](INGGRIS/1.jpg) 
+![](INGGRIS/2.jpg) 
+![](INGGRIS/3.jpg) 
+![](INGGRIS/4.jpg) 
 
