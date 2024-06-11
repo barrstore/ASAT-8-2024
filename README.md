@@ -1,5 +1,6 @@
 # INFORMATIKA
 ++++++NOTE UNTUK PARA PECONTEK GRATISAN++++++
+
 --INI JAWABAN DARI NOMOR 17, KRN  NI 1 SMPE 16 GAMPANG WKWKKW--
 1.	Proses pengumpulan dan pengorganisasian data untuk menarik kesimpulan yang berguna dari beberapa data adalah…ANALISIS DATA
 
