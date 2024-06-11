@@ -249,6 +249,6 @@ B.	Salah
 # BAHASA INGGRIS
 ![](INGGRIS/1.jpg) 
 ![](INGGRIS/2.jpg) 
-![](INGGRIS/3.jpg) 
 ![](INGGRIS/4.jpg) 
+![](INGGRIS/3.jpg) 
 
