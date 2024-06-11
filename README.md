@@ -36,7 +36,7 @@ B.	Salah
 
 
 7.	Pada gambar berikut yang menunjukkan icon lookup dan reference terdapat pada nomor …. 3 (WARNA BIRU) 
-
+! [](INFORMATIKA/no7.jpg) 
  
 
 
@@ -68,7 +68,7 @@ B.	Salah
 
 
 12.	Pada gambar berikut yang menunjukkan posisi di cell B2 adalah …LAPTOP
-
+! [](INFORMATIKA/no12.jpg) 
 
 
  
@@ -78,7 +78,7 @@ B.	Salah
 
 
 13.	Pada gambar berikut yang menunjukkan posisi di cell C4 adalah …MOUSE
-
+! [](INFORMATIKA/no13.jpg) 
 
 
 
@@ -96,7 +96,7 @@ B.	Salah
 
 
 14.	Pada gambar berikut kata "mouse"  terdapat pada cell ….C3
-
+! [](INFORMATIKA/no14.jpg) 
 
 
 
@@ -118,7 +118,7 @@ B.	Salah
 
 
 15.	Pada gambar berikut kata "komputer" terdapat pada cell ….A1
-
+! [](INFORMATIKA/no15.jpg) 
 
 
 
@@ -192,69 +192,7 @@ B.	Salah
 
 
 26.	Berikut ini gambar yang menunjukkan jenis column charts adalah ….D
-
-A.  
-
- 
-
-
-
-
-
-
-
-B.  
-
-  
-
-
-
-
-
-
-
-
-
-
-
-C.  
-
-
-
-
-
-
-
-
-
-
-
-
-
-D.  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+! [](INFORMATIKA/no26.jpg) 
 
 
 
@@ -264,7 +202,7 @@ D.
 
 
 27.	Pada gambar berikut yang menunjukkan fitur pivot table adalah ….3
-
+! [](INFORMATIKA/no27.jpg) 
  
 
 
