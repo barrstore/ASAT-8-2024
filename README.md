@@ -256,11 +256,11 @@ d.	IOE (Indias orientales españolas)
 
 10.	Tokoh Belanda yang peduli atas penderitaan rakyat Indonesia akibat penerapan system tanam paksa Gubernur Jenderal Van den Bosch, yaitu ….
 
-a.	Baron Van Hoevel & Thomas Stamford Raffles@@@@
+a.	Baron Van Hoevel & Thomas Stamford Raffles
 
 b.	Van den Bosch & Jan Pieter Joen Coen
 
 c.	Edward Douwes Dekker &  Baron Van Hoevel
 
-d.	Jan Pieter Joen Coen & Edward Douwes Dekker
+d.	Jan Pieter Joen Coen & Edward Douwes Dekker@@@@@@
 
