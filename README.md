@@ -53,13 +53,13 @@ d.	Ferdinand Magellhaens@@@@
 
 6.	Latar belakang kedatangan bangsa Eropa ke Indonesia di bawah ini, kecuali ...
 
-a.	Menjalin kerja sama antar Negara
+a.	Menjalin kerja sama antar Negara@@@@@
 
 b.	Runtuhnya kekaisaran Romawi Barat akibat perang Salib melawan pasukan Islam Turki-Usmani
 
 c.	Agama Kristen dikuasai oleh kaun instana dan gereja
 
-d.	Hasrat menguasai daerah penghasil rempah-rempah@@@
+d.	Hasrat menguasai daerah penghasil rempah-rempah
 
 7.	Vasco Da Gama-Portugis melanjutkan pelayaran menuju negara India dan mendirikan kantor dagang di kota ....
 
@@ -109,11 +109,11 @@ d.	1602@@@
 
 a.	Vasco da Gama
 
-b.	Marcopolo
+b.	Marcopol
 
 c.	Herman William Daendlles
 
-d.	Napoleon Bonaparte@@@
+d.	Napoleon Bonaparte@@@@
 
 12.	Pada tahun 1521 imperialisme Spanyol ke Maluku yang saat itu diduduki  imperialisme Portugis, terjadilah peperangan antara Spanyol dan Portugis dan berhasil melakukan kesepakatan untuk membagi wilayah kekuasan melalui perundingan….
 
@@ -127,9 +127,9 @@ d.	Renville
 
 13.	Dalam melancarkan imperialismenya, Portugis dengan mengobarkan motivasi 3G. salah satunya Glory yang artinya ….
 
-a.	Mas/kekayaan@@@@
+a.	Mas/kekayaan
 
-b.	Kejayaan
+b.	Kejayaan@@@
 
 c.	Kitab suci Nasrani
 
