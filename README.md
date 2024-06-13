@@ -155,3 +155,112 @@ c.	Devie et impera
 
 d.	Cultuur stelsel
 
+# IPS FORMATIF 2
+1.	Monopoli dagang Belanda melalui kongsi dagang VOC terhadap para pedagang rakyat Indonesia terjadi dimana-mana. Belanda berhasil membangun ibukota VOC dan sebagai pusat operasionalnya di wilayah ….
+
+a.	Batavia@@@@
+
+b.	Banten
+
+c.	Cirebon
+
+d.	Mataram
+
+2.	Hak Oktroi VOC-Belanda adalah ….
+
+a.	Hak istimewa VOC untuk membangun kerja sama perdagangan antar Negara
+
+b.	Hak istimewa VOC untuk melakukan persaingan dagang yang sehat antar Negara
+
+c.	Hak istimewa VOC untuk melakukan monopoli perdagangan terhadap para pedagang kecil rakyat Indonesia yang sangat merugikan@@@@
+
+d.	Hak istimewa VOC untuk memperoleh keuntungan yang sebesar-besarnya dari hasil perdagangan
+
+3.	William Daendlles diangkat sebagai Gubernur Jenderal di Indonesia oleh Napoleon Bona Parte (Prancis), selain ditugaskan membangun jalan di pulau Jawa dari Anyer-Banten sampai Panarukan-Jawa Timur, juga menerapkan system Preanger Stelsel,  artinya ….
+
+a.	Kewajiban rakyat Jawa Barat menanam pohon kina, untuk kepentingan ke Belanda
+
+b.	Kewajiban rakyat Jawa Barat menanam tanaman eksport kopi, untuk kepentingan ke Belanda@@@@
+
+c.	Kewajiban rakyat Jawa Barat menanam tanaman teh, untuk kepentingan Belanda
+
+d.	Kewajiban rakyat Jawa Barat menanam pohon salak, untuk kepentingan Belanda 
+
+4.	Pada tanggal, 31 Desember 1799 kongsi dagang VOC dibubarkan oleh pemerintah republic Bataaf-Belanda, dengan alasan….
+
+a.	Karena sudah ada kongsi dagang Belanda sebagai penggantinya yang lebih hebat
+
+b.	Karena tidak ada persaingan dagang antara Negara penjajah di wilayah Indonesia
+
+c.	Karena sudah tidak diperlukan lagi adanya kongsi dagang VOC di wilayah Indonesia
+
+d.	Karena kongsi dagang VOC mengalami kebangkrutan akibat korupsi dan hidup berpoya-poya@@@@
+
+5.	Batavia jatuh ke tangan Inggris pada 26 Agustus 1811 yang saat itu dikuasai Belanda. Pasukan Inggris dengan kongsi dangangnya menerapkan system sewa tanah dan teori domein, dibawah pimpinan ….
+
+a.	Brigjen AWS Mallaby
+
+b.	Thomas Stamford Raffles@@@
+
+c.	Cornelis de Houtman
+
+d.	James Cook
+
+6.	System Cultuur Stelsel diterapkan pada tahun 1830 di daerah pulau Jawa oleh Gubernur Jenderal Belanda, yaitu …
+
+a.	Pieter Booth
+
+b.	Willem Daendels
+
+c.	Cornelis De Houtman
+
+d.	Van Den Bosch@@@@
+
+7.	System Cultuur Stelsel – Belanda artinya adalah ….
+
+a.	Kebijakan system tanam paksa terhadap rakyat pulau jawa oleh pemerintah Hindia-Belanda@@@@
+
+b.	Kebijakan sewa tanah terhadap rakyat Indonesia meskipun adalah pemiliknya yang sah
+
+c.	Kebijakan system kerja paksa terhadap rakyat pulau jawa oleh pemerintah Hindia-Belanda
+
+d.	Kebijakan system monopoli perdagangan atas para pedagang rakyat Indonesia oleh pemerintah Hindia-Belanda
+
+8.	Bunga Bangkai Raksasa Rafflesia Arnoldi ditemukan pertama kali oleh Gubernur Jenderal Inggris yaitu Thomas Stamford Raffles di provinsi ….
+
+a.	Lampung
+
+b.	Bengkulu@@@
+
+c.	Jambi
+
+d.	Sumatera Selatan
+
+
+
+
+
+
+
+
+
+9.	Kongsi dagang Inggris di Indonesia pada tahun 1811 yang dipimpin Gubernur Jenderal Thomas Stamford Raffles, yaitu ….
+
+a.	EIC (East India Company) @@@
+
+b.	VOC (Vereenigde Oost-Indische Compagnie)
+
+c.	CDIO (COMPAGNIE DES INDES ORIENTALES)
+
+d.	IOE (Indias orientales españolas)
+
+10.	Tokoh Belanda yang peduli atas penderitaan rakyat Indonesia akibat penerapan system tanam paksa Gubernur Jenderal Van den Bosch, yaitu ….
+
+a.	Baron Van Hoevel & Thomas Stamford Raffles@@@@
+
+b.	Van den Bosch & Jan Pieter Joen Coen
+
+c.	Edward Douwes Dekker &  Baron Van Hoevel
+
+d.	Jan Pieter Joen Coen & Edward Douwes Dekker
+
