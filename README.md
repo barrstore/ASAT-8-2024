@@ -265,6 +265,188 @@ c.	Edward Douwes Dekker &  Baron Van Hoevel
 d.	Jan Pieter Joen Coen & Edward Douwes Dekker@@@@@@
 
 
+
+# FORMATIF 3
+1.	Inflasi adalah ….
+
+a.	Keadaan nilai mata uang suatu Negara dengan kondisi stabil dalam waktu tertentu
+
+b.	Kenaikan harga barang & jasa secara umum dan terus-menerus dalam waktu tertentu@@@@
+
+c.	Penurunan harga barang secara umum sebagai akibat produksi barang yang melimpah 
+
+d.	Keadaan nilai mata uang suatu Negara yang tidak stabil dalam waktu tertentu
+
+
+
+2.	Deflasi adalah ….
+
+a.	Keadaan nilai mata uang suatu Negara yang kondisi stabil dalam waktu tertentu
+
+b.	Penurunan harga barang secara umum sebagai akibat produksi barang yang melimpah 
+
+c.	Kenaikan harga barang & jasa secara umum dan terus-menerus dalam waktu tertentu
+
+d.	Penurunan harga barang & jasa yang terjadi pada periode tertentu dan berlaku untuk waktu yang lama@@@@
+
+
+
+3.	Beberapa penyebab bangsa Indonesia setelah merdeka mengalami inflasi yang tinggi di bawah, kecuali….
+
+a.	Mata uang Jepang beredar luas
+
+b.	Bangsa Indonesia saat itu belum memiliki mata uang sendiri
+
+c.	Bangsa Indonesia baru merdeka pada tanggal, 17 Agustus 1945@@@@
+
+d.	Pemerintah Indonesia saat itu belum mampu menghentikan peredaran mata uang Jepang
+
+
+
+4.	Beberapa langkah bangsa Indonesia untuk membangkitkan perekonomian setelah merdeka adalah ….
+
+a.	Program pinjaman nasional
+
+b.	Mengeluarkan mata uang sendiri
+
+c.	Membentuk Bank Negara Indonesia
+
+d.	Jawaban a, b dan c benar@@@@
+
+
+
+5.	Bangsa Indonesia mengalami masa demokrasi Parlementer pada tahun 1950-1959, artinya ….
+
+a.	Konsep pemerintahan di suatu negara yang memberikan otoritas kepada parlemen untuk mengerjakan tugas-tugas Negara@@@@
+
+b.	Meletakkan kembali tatanan seluruh kehidupan rakyat, bangsa, dan negara pada kemurnian pelaksanaan Pancasila dan Undang-Undang Dasar 1945
+
+c.	Sistem pemerintahan yang dipimpin oleh seorang presiden secara mutlak dan otoriter
+
+d.	Demokrasi dimana sudah lebih terjamin dan dapat dilaksanakan oleh semua golongan masyarakat secara demokratis, munculnya partai politik, kemerdekaan pers, terselenggaranya pemilu yang demokratis, adanya otonomi daerah, hingga pembebasan narapidana politik dan tahanan politik.
+
+
+
+6.	Munculnya Dekrit Presiden pada 5 Juli 1959 pada masa demokrasi parlementer, disebabkan oleh ….
+
+a.	Ggagalnya Badan Konstituante untuk menetapkan UUD baru sebagai pengganti UUDS 1950
+
+b.	Munculnya pemberontakan dalam Negara sendiri yakni pemberontakan G 30 S PKI, dan pembebasan Irian Barat
+
+c.	Konforontasi dengan Negara Malaysia
+
+d.	Jawaban a, b dan C benar@@@
+
+7.	Di bawah ini yang salah dari isi Dekrit Presiden 5 Juli 1959, yaitu ….
+
+a.	Dewan Konstituante dibubarkan
+
+b.	Pengangkatan masa pemerintahan presiden Soekarno seumur hidup@@@@
+
+c.	Berlakunya kembali UUD 1945
+
+d.	Tidak berlakunya UUDS 1950
+
+
+
+8.	Tujuan Deklarasi Ekonomi adalah menciptakan ekonomi nasional yang bersifat demokratis dan bebas dari imperialism. Saat itu Perekonomian Negara semakin memburuk disebabkan oleh belanja Negara setiap tahunnya meningkat tanpa diimbangi oleh pendapatan Negara yang memadai. Menyebabkan harga-harga barang naik 200 s/d 300 % pada tahun 1965. Upaya tepat yang dilakukan pemerintah saat itu adalah ….
+
+a.	Melakukan pinjaman modal ke negara-negara tetangga
+
+b.	Melaksanakan program transmigrasi, daerah Lampung menjadi tujuan pertama
+
+c.	Mengeluarkan kebijakan pecahan mata uang Rp.1000 diganti dengan Rp.1@@@
+
+d.	Melakukan perbaikan dalam bidang politik, social, ekonomi, dan hokum
+
+
+
+9.	Lahirnya masa Orde Baru diawali dengan keluarnya Surat Perintah Sebelas Maret 1966 (Supersemar) dari Presiden Soekarno kepada ….
+
+a.	Letnan Jenderal TNI Soeharto@@@
+
+b.	Letnan Jenderal TNI Susilo Bambang Yudoyono (SBY)
+
+c.	Jenderal TNI A.H Nasution
+
+d.	Letnan Jenderal TNI Ahmad Yani
+
+
+
+10.	Latar belakang lahirnya Tri Tura (tiga tuntutan rakyat) pada 12 Januari 1966, disebabkan beberapa hal, kecuali ….
+
+a.	Laju inflasi sangat tinggi menyebabkan harga-harga barang naik sangat tinggi terutama BBM
+
+b.	Peristiwa G30S meletus dan Partai Komunis Indonesia (PKI) yang dekat dengan Soekarno dituduh bertanggung jawab atas terbunuhnya enam jenderal TNI dan satu perwira.
+
+c.	Pemerintah menerapkan kebijakan program jangka pendek dan jangka panjang@@@
+
+d.	Presiden Soekarno memposisikan Indonesia berlawanan dengan negara-negara Barat.
+
+
+
+11.	Di bawah ini yang tidak termasuk point-point Isi Tri Tura adalah ….
+
+a.	Pembubarakan PKI dan ormas-ormasnya
+
+b.	Usir Belanda dari bumi Indonesia
+
+c.	Pembubaraan cabinet Dwi Kora dan unsur-unsur yang terlibat PKI
+
+d.	Penurunan harga@@@
+
+
+
+12.	Masa berlangsungnya Orde Baru yaitu ….
+
+a.	Dari tahun 1945 s/d tahun 2000
+
+b.	Dari tahun 1966 s/d tahun 2006
+
+c.	Dari tahun 1945 s/d tahun 1998
+
+d.	Dari tahun 1966 s/d tahun 1998@@@
+
+
+
+13.	Latar belakang lahirnya Orde Reformasi adalah ….
+
+a.	Konsep pemerintahan di suatu negara yang memberikan otoritas kepada parlemen untuk mengerjakan tugas-tugas Negara
+
+b.	Terjadinya krisis ekonomi dan keuangan sejak tahun 1997, pemerintahan orde baru yang sangat lama 32 tahun dan cenderung otoriter menyebabkan maraknya praktek KKN yang berkepanjangan@@@@
+
+c.	Munculnya pemberontakan dalam Negara sendiri yakni pemberontakan G 30 S PKI, dan pembebasan Irian Barat
+
+d.	Peristiwa G30S meletus dan Partai Komunis Indonesia (PKI) yang dekat dengan Soekarno dituduh bertanggung jawab atas terbunuhnya enam jenderal TNI dan satu perwira
+
+
+
+14.	Pihak yang paling berperan lahirnya orde reformasi adalah ….
+
+a.	Kalangan mahasiswa dan masyarakat@@@@
+
+b.	Kalangan TNI dan Polri
+
+c.	Pemerintah Orde Baru saat itu
+
+d.	Kalangan penguasaha dan para akademisi
+
+
+
+15.	Orde Reformasi berawal dari masa kejatuhannya Presiden Soeharto (mundurnya sebagai Presiden) pada ….
+
+a.	2 Mei 1959
+
+b.	20 Mei 1908
+
+c.	21 Mei 1998@@@
+
+d.	21 Mei 1966
+
+
+
+
+
 # FORMATIF 3
 1.	Gambar di bawah ini menunjukkan tokoh pahlawan dari kerajaan Islam Mataram Yogyakarta Pangeran Diponegoro, yaitu….C
 
