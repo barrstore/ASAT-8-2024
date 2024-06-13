@@ -266,3 +266,471 @@ d.	Jan Pieter Joen Coen & Edward Douwes Dekker@@@@@@
 
 
 # FORMATIF 3
+1.	Gambar di bawah ini menunjukkan tokoh pahlawan dari kerajaan Islam Mataram Yogyakarta Pangeran Diponegoro, yaitu….C
+
+ 
+
+
+
+2.	Tokoh dalam perang Paderi di tanah Minang-Sumatera Barat yaitu ….
+
+a.	KH. Mas Mansyur
+
+b.	Kyai Mojo
+
+c.	Pangeran Diponegoro
+
+d.	Tuanku Imam Bonjol@@@@
+
+3.	Kerajaan Islam Aceh mencapai puncak kejayaan pada masa pemerintahan sultan ….
+
+a.	Sultan Iskandar Muda@@@
+
+b.	Sultan Hasanudin
+
+c.	Sultan Mahmud Riayad Syah
+
+d.	Sultan Ba’abullah
+
+4.	Perang Jihad Fisabilillah yang dikobarkan rakyat Aceh melawan Belanda artinya….
+
+a.	Perang suci di jalan Allah
+
+b.	Perang habis-habisan rela berkorban@@
+
+c.	Perang secara bergerilya menyelinap ke hutan-hutan belantara
+
+d.	Perang terbuka saling serang-menyerang
+
+5.	Alasan kuat Pangeran Diponegoro meninggalkan istana kerajaan Mataram yaitu ….
+
+a.	Pangeran Diponegoro bermaksud melakukan perang Gerilya
+
+b.	Karena kalangan istana kerajaan sudah mulai disusupi budaya barat
+
+c.	Adanya perbedaan pendapat antara Pangeran Diponegoro dan Kyai Mojo tentang taktik perang@@@
+
+d.	Karena keraton kerajaan Mataram dikuasai Belanda
+
+6.	Belanda memperoleh kemudahan dalam menjebak dan menangkap Pangeran Diponegoro, Kyai Mojo dan Sentot Alibasyah, disebabkan ….
+
+a.	Adanya perbedaan siasat perang antara  Pangeran Diponegoro yang menginginkan perang secara Gerilya, sedangkan Kyai Mojo menginginkan siasat perang secara terbuka@@@
+
+b.	Adanya perbedaan siasat perang antara  Pangeran Diponegoro yang menginginkan perang secara terbuka, sedangkan Kyai Mojo menginginkan siasat perang secara bergerilya.
+
+c.	Adanya perbedaan pendapat tentang pergantian takhta kerajaan Mataram
+
+d.	Adanya perbedaan tentang rumusan perundingan yang akan dilaksanakan dengan Belanda
+
+7.	Pada tanggal, 11 Januari 1942 pertama kali pasukan Jepang mendarat di Indonesia, tepatnya di daerah ….
+
+a.	Martapura-Kalimantan Selatan
+
+b.	Pontianak-kalimantan Barat
+
+c.	Palembang-Sumatera Selatan
+
+d.	Tarakan-Kalimantan Timur@@@
+
+8.	Kedatangan pasukan Jepang di pulau Jawa pada 5 Maret 1942 yang saat itu dikuasai Belanda. Akhirnya Belanda menyerah kalah tanpa syarat kepada pasukan Jepang pada 8 Maret 1942 di daerah ….
+
+a.	Linggar Jati-Kuningan Jawa Barat
+
+b.	Bandung-Jawa Barat
+
+c.	Singaparna-Tasikmalaya Jawa Barat
+
+d.	Kalijati-Subang Jawa Bawa Barat@@@
+
+9.	Pasukan Jepang melakukan propaganda terhadap rakyat Indonesia dengan semboyan 3A, bertujuan untuk ….
+
+a.	Menarik simpatik rakyat Indonesia, dan menjanjikan kemudahan dalam beribadah.@@@
+
+b.	Menjanjikan kemerdekaan kepada rakyat Indonesia
+
+c.	Menakut-nakuti rakyat Indonesia agar segera menyerah
+
+d.	Agar rakyat Indonesia mau membantu pasukan Jepang melawan Belanda
+
+10.	Propaganda 3A Jepang yaitu ….
+
+a.	Jepang Penguasa Asia, Jepang Penguasa Dunia, Jepang Penguasa Indonesia
+
+b.	Jepang Cahaya Asia, Jepang Pelindung Asia, Jepang Pemimpin Asia
+
+c.	Jepang Penyumbang, Jepang Pemerhati, Jepang Pengasih@@@
+
+d.	Jepang Penjajah, Jepang Penguasa, Jepang Tangguh
+
+11.	Organisasi militer Jepang Heiho adalah ….
+
+a.	Organisasi pemuda prajurit yang dididik Jepang
+
+b.	Organisasi prajurit kaum wanita yang dididik Jepang
+
+c.	Organisasi prajurit pembantu tentara Jepang@@
+
+d.	Pasukan gerilya untuk membantu Jepang
+
+12.	Pasukan PETA (Pembela Tanah Air) dibentuk Jepang 3 Oktober 1943 akhirnya berbalik melawan Jepang di Blitar Jawa Timur dipimpin seorang pemuda tangguh yaitu ….
+
+a.	Bung Tomo@@@
+
+b.	Bung Karno
+
+c.	Supriyadi
+
+d.	Ki Hajar Dewantoro
+
+13.	Kerja paksa jaman penjajahan Jepang disebut ….
+
+a.	Harakiri
+
+b.	R o d i
+
+c.	Kimigayo
+
+d.	Romusha@@@
+
+
+
+14.	Rakyat pulau Jawa diwajibkan oleh Jepang menanam pohon jarak dengan tujuan ….
+
+a.	Diambil minyaknya untuk keperluan rumah tangga Jepang
+
+b.	Diambil buahnya untuk keperluan obat-obatan tentara Jepang
+
+c.	Diambil getahnya untuk keperluan pelumas peralatan perang Jepang@@@
+
+d.	Diambil daunnya untuk keperluan masakan Jepang
+
+15.	Jepang membentuk PUTERA (Pusat Tenaga Rakyat) pada 1 Maret 1943, tokoh-tokoh PUTERA empat serangkai antara lain ….
+
+a.	Ir.Soekarno,  Moch.Hatta,  KH.Mas Mansyur,  Ki Hajar Dewantoro@@@
+
+b.	Bung Tomo, Bung Hatta, Bung Karno, Bung Dirman
+
+c.	KH. Wahid Hasyim,  KH. Agus Salim,  KH. Mas Mansyur,  KH. Hasyim Asyi’ary
+
+d.	Supriyadi, Jenderal Soedirman, Edward Douwes Dekker, Kyai Mojo
+
+16.	Salah satu penyebab kegagalan bangsa Indonesia perang melawan penjajah sebelum kemerdekaan adalah ….
+
+a.	Perlawanan bersifat kedaerahan@@@
+
+b.	Bangsa Indonesia saat itu belum memiliki senjata mutakhir seperti halnya para penjajah
+
+c.	Para tokoh bangsa lebih suka dengan pemimpinnya yang ada di daerah untuk melawan penjajah
+
+d.	Persenjataan para penjajah saat itu sudah modern
+
+17.	Ikrar Sumpah Pemuda dikumandangkan pada tanggal, 28 Oktober 1928, yakni …
+
+a.	Bertumpah darah satu, berbudaya satu, berbahasa Satu
+
+b.	Berbangsa satu, beragama satu, berbahasa Satu
+
+c.	Bertumpah darah satu, berbangsa satu, berbahasa satu @@@
+
+d.	Berbahasa satu, berbudaya satu, beragama satu 
+
+18.	Pada tahun 1901 Ratu Belanda Wilhelmina menerapkan kebijakan yang disebut politik Etis terhadap rakyat Indonesia, isi dari politik Etis tersebut adalah ….
+
+a.	Irigasi/pengairan, migrasi/perpindahan penduduk, edukasi/pendidikan
+
+b.	Grasi/pengampunan, irigasi/pengairan, edukasi/pendidikan
+
+c.	Religi/keagamaan, edukasi/pendidikan, grasi/pengampunan
+
+d.	Grasi/pengampunan, religi/keagamaan, migrasi/perpindahan penduduk@@@
+
+19.	Dampak dari penerapan politik Etis-Belanda terhadap kehidupan rakyat Indonesia saat itu adalah ….
+
+a.	Tidak ada pengaruhnya sama sekali terhadap perubahan kehidupan rakyat Indonesia
+
+b.	Sangat merugikan terhadap kehidupan rakyat Indonesia
+
+c.	Menguntungkan Belanda dalam memperlancar penjajahan di Indonesia
+
+d.	Berdampak positif untuk jangka panjang bagi kehidupan bangsa Indonesia@@@
+
+20.	Organisasi pergerakan nasional yang pertama kali berdiri yaitu Budi Utomo pada tanggal ….
+
+a.	2 Mei 1959
+
+b.	20 Mei 1908@@
+
+c.	1 Juni 1945
+
+d.	18 Juni 1945
+
+21.	Pasukan Jepang menyerah kalah tanpa syarat kepada pasukan Sekutu pada tanggal, 2 September 1945, karena ….
+
+a.	Pasukan Jepang mulai terdesak oleh pasukan Indonesia
+
+b.	Pasukan Jepang mulai terdesak oleh pasukan Belanda yang dibantu pasukan Sekutu
+
+c.	Dua kota besar Jepang yaitu Hiroshima & Nagasaki dibom atom oleh pasukan Sekutu@@@@
+
+d.	Jepang kalah dalam perundingan bersama pasukan Belanda yang dibantu pasukan Sekutu
+
+22.	Bangsa Indonesia sangat menentang keras terhadap penjajahan, karena tidak sesuai dengan perikemanusiaan dan perikeadilan. Penggalan kalimat tersebut tercantum dalam pembukaan UUD 1945 alinea ke ….
+
+a.	Ke 1@@@
+
+b.	Ke 2
+
+c.	Ke 3
+
+d.	Ke 4
+
+23.	Bangsa Indonesia cinta damai, tapi bangsa Indonesia lebih mencintai ….
+
+a.	Kebersamaan
+
+b.	Kebebasan
+
+c.	Kemerdekaan@@@
+
+d.	Keunggulan
+
+24.	Pada tanggal, 1 Maret 1945 Jenderal Kumakichi Harada (panglima pemerintahan Jepang di Jawa) mengumumkan pembentukan Badan Penyelidik Usaha Persiapan Kemerdekaan Indonesia (BPUPKI) diketuai oleh Dr. KRMT Radjiman Wedyadiningrat, dengan tujuan ….
+
+a.	Menyelidik hal-hal penting yang berhubungan dengan persiapan kemerdekaan Indonesia@@@
+
+b.	Membantu perjuangan Jepang yang sudah terdesak menghadapi pasukan Sekutu
+
+c.	Memberikan kemerdekaan kepada bangsa Indonesia karena sudah membantu perlawanan menghadapi pasukan sekutu
+
+d.	Mengorbankan bangsa Indonesia menghadapi pasukan Sekutu
+
+25.	Momentum Jepang menyerah kalah kepada pasukan Sekutu pada 15 Agustus 1945 disambut gembira oleh para pejuang bangsa Indonesia. Namun muncul perbedaan pendapat antara kalang pejuang muda dengan para kalangan pejuang tua sehingga terjadilah peristiwa Rengasdengklok-Karawang pada 16 Agustus 1945 pukul 03.00 WIB, Soekarna-Hatta dibawa para pemuda yang dipimpin oleh Sutan Syahrir,dkk ke daerah Rengasdengklok. Perbedaan pendapat yang mendasar antara kaum pejuang muda dan kaum pejuang tua tersebut adalah ….
+
+a.	Para pejuang muda menginginkan para tokoh bangsa untuk segera memproklamirkan kemerdekaannya, sedangkan para tokoh sepuh bangsa menginginkan menunda agar kondisi bangsa Indonesia benar-benar aman untuk memproklamirkan kemerdekaan@@@
+
+b.	Karena para tokoh sepuh pejuang bangsa sudah terpengaruh propaganda dan hasutan pasukan Jepang
+
+c.	Para pejuang muda menginginkan para tokoh bangsa untuk menunda memproklamirkan kemerdekaannya sampai kondisi bangsa aman, sedangkan para tokoh sepuh bangsa menginginkan segera untuk memproklamirkan kemerdekaan
+
+d.	Karena para tokoh pejuang muda sudah terpangaruh propaganda pasukan Jepang
+
+
+# FORMATIF 4
+1.	Aktivitas menjual barang dari dalam negeri ke luar negeri disebut ....
+
+a.	Eksportir
+
+b.	Importir
+
+c.	Ekspor.
+
+d.	Impor
+
+2.	Di bawah ini yang tidak termasuk factor pendorong terjadinya perdagangan internasional yaitu ....
+
+a.	Perbedaan harga
+
+b.	Perbedaan kondisi geografis
+
+c.	Perbedaan sumber daya alam
+
+d.	Perbedaan system pemerintahan@@@
+
+3.	Beberapa manfaat perdagangan internasional adalah ....
+
+a.	Memenuhi kebutuhan dalam negeri
+
+b.	Memperoleh kebutuhan barang dengan mudah dan murah
+
+c.	Pendapatan meningkat melalui perolehan devisa
+
+d.	Jawaban a, b, dan c benar@@@
+
+4.	Yang dimaksud politik Dumping yaitu ....
+
+a.	Kebijkan menjual barang dari luar negeri lebih mahal dari pada barang dari dalam negeri
+
+b.	Kebijakan melindungi produk dalam negeri
+
+c.	Kebijakan menjual barang dari luar negeri lebih murah dari pada barang dari dalam negeri@@@
+
+d.	Kebijakan melindungi produk dari luar negeri
+
+5.	Berdasarkan  jenis penggolongannya barang import terdiri dari ....
+
+a.	Barang konsumsi, bahan baku, dan barang modal@@@
+
+b.	Barang jadi, barang setengah jadi, dan barang mentah
+
+c.	Barang konsumsi, bahan jadi, dan barang setengah jadi
+
+d.	Barang modal, bahan baku, dan barang jadi
+
+6.	Kondisi kekurangan tenaga ahli di suatu negara sehingga tidak mampu memproduksi barang berkualitas tinggi dan murah merupakan salah satu pendorong terjadinya perdagangan internasional yaitu disebabkan ....
+
+a.	perbedaan upah dan biaya produksi@@@
+
+b.	perbedaan kualitas sumber daya manusia.
+
+c.	perbedaan budaya suatu bangsa
+
+d.	perbedaan sumber daya alam
+
+7.	Kerja sama Indonesia dengan negara-negara maju, memberi kesempatan pada generasi muda menjadi paham dan mahir dalam bidang teknologi. Dari Ilustrasi tersebut, manfaat perdagangan internasional adalah ....
+
+a.	memperoleh devisa
+
+b.	menstabilkan harga-harga
+
+c.	memperluas kesempatan kerja
+
+d.	menguasai IPTEK.
+
+8.	Salah satu dampak positif perdagangan internasional adalah ....
+
+a.	meningkatkan kuantitas dan kualitas produksi.@@@
+
+b.	meningkatkan ketergantungan terhadap barang asing
+
+c.	masyarakat menjadi semakin konsumtif
+
+d.	terdapat produsen dalam negeri gulung tikar
+
+9.	Dampak negatif perdagangan internasional antara lain ....
+
+a.	memperoleh devisa dari luar negeri
+
+b.	barang konsumsi semakin beragam
+
+c.	terikat dengan produk-produk asing.@@@
+
+d.	terjadi perpindahan teknologi ke dalam negeri
+
+10.	Organisasi perdagangan dunia yang berada di luar naungan PBB adalah ....
+
+a.	IMF  (Internatonal Monetary Fund)
+
+b.	WTO (Word Trade Organization)
+
+c.	OPEC (Organization of the Petroleum Exporting countries)
+
+d.	AFTA (ASEAN Free Trade Area).
+
+11.	Kegiatan tukar menukar barang atau jasa atau keduanya yang berdasarkan kesepakatan bersama bukan pemaksaan disebut ....
+
+a.	Permintaan
+
+b.	Penawaran
+
+c.	Perdagangan.@@@
+
+d.	Pembelian
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+12.	Suatu kegiatan menjual produk barang atau jasa ke luar negeri disebut ....
+
+a.	Ekspor.@@@
+
+b.	Impor
+
+c.	Transito
+
+d.	Distribusi
+
+13.	Orang atau lembaga perantara dagang yang mendatangkan barang dari luar negeri disebut ....
+
+a.	Distributor
+
+b.	Regulator
+
+c.	Importir.@@
+
+d.	Eksportir
+
+14.	Berikut ini adalah manfaat dari perdagangan antarnegara, kecuali ....
+
+a.	kebutuhan setiap negara tercukupi
+
+b.	keuntungan dari negara pengekspor yaitu devisa
+
+c.	mendorong kegiatan produksi barang secara besar- besaran
+
+d.	perekonomian negara- negara maju akan semakin maju dan negara berkembang akan semakin turun.@@@
+
+15.	Keuntungan yang diperoleh dari kegiatan ekspor suatu negara adalah dalam bentuk mata uang asing yang disebut ....
+
+a.	Valas
+
+b.	Deposito
+
+c.	Saham
+
+d.	Devisa.@@
+
+16.	Yang bukan termasuk sumber devisa negara adalah ....
+
+a.	hasil ekspor barang- barang
+
+b.	hutang luar negeri.@@@
+
+c.	kunjungan wisatawan mancanegara
+
+d.	modal investasi
+
+17.	Organisasi perdagangan bebas kawasan Asia-Pasifik adalah ...
+
+a.	APEC (Asia Pasific Economic Coopration).@@@
+
+b.	OPEC (Organization of Petroleum Exporting Countries)
+
+c.	AFTA (ASEAN Free Trade Area)
+
+d.	MEA (Masyarakat Ekonomi ASEAN)
+
+18.	AFTA (ASEAN Free Trade Area) adalah ....
+
+a.	Organisasi perdagangan bebas kawasan Asia
+
+b.	Organisasi perdagangan bebas kawasan Asia-Pasifik
+
+c.	Oeganisasi perdagangan bebas kawasan Asia Tenggara.
+
+d.	Organisasi perdagangan bebas kawasan Eropa
+
+19.	Organisasi perdagangan internasional adalah ....
+
+a.	APEC (Asia Pasific Economic Coopration)
+
+b.	OPEC (Organization of Petroleum Exporting Countries)
+
+c.	AFTA (ASEAN Free Trade Area)
+
+d.	WTO (Word Trade Organization).@@@
+
+20.	Bantuan uang dan sebagainya kepada yayasan, perkumpulan, dan sebagainya dari pihak pemerintah, kita kenal dengan istilah ....
+
+a.	Devisa
+
+b.	Subsidi.@@@@
+
+c.	Devaluasi
+
+d.	Inflasi
+
+
+# FORMATIF 5
