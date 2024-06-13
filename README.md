@@ -734,3 +734,224 @@ d.	Inflasi
 
 
 # FORMATIF 5
+1.	Faktor-faktor utama yang berpengaruh terhadap dinamika penduduk adalah….
+
+a.	Natalitas, Mortalitas, dan Migrasi@@@@
+
+b.	Natalitas, Mortalitas, dan Kemiskinan
+
+c.	Migrasi, Urbanisasi, dan Transmigrasi
+
+d.	Kematian, Kelahiran, dan Bencana Alam
+
+
+
+2.	Salah satu faktor dinamika penduduk yang dapat menambah jumlah penduduk adalah….
+
+a.	Natalitas@@@
+
+b.	Mortalitas
+
+c.	Kematian
+
+d.	Migrasi 
+
+
+
+3.	Faktor yang menyebabkan pertumbuhan penduduk dapat berupa….
+
+a.	Keberhasilan program keluarga berencana sehingga menekan jumlah kelahiran
+
+b.	Meningkatnya pendidikan masyarakat dapat menekan tingkat kelahiran
+
+c.	Kawin di usia muda dapat memperpanjang usia subur untuk melahirkan
+
+d.	Tingginya kesadaran masyarakat untuk memiliki keluarga kecil yang bahagia
+
+
+
+4.	Sumber data utama kependudukan dapat diperoleh melalui…
+
+a.	Sensus, survey, dan wawancara penduduk
+
+b.	Survey, angket, dan wawancara
+
+c.	Sensus, wawancara, dan registrasi penduduk
+
+d.	Sensus, survey, dan registrasi penduduk
+
+
+
+5.	Tujuan akhir dilaksanakannya sensus penduduk adalah untuk….
+
+a.	Sebagai sumber data dalam perencanaan pembangunan nasional
+
+b.	Mengetahui perubahan penduduk dari waktu ke waktu dalam suatu periode.
+
+c.	Mengetahui jumlah, sebaran, dan kepadatan penduduk pada setiap wilayah.
+
+d.	Mengetahui berbagai informasi tentang kependudukan
+
+
+
+6.	Pernyataan di bawah ini yang bukan dampak negative dari dinamika penduduk, yaitu ….
+
+a.	Kemiskinan 
+
+b.	Kriminalitas 
+
+c.	Perencanaan pembangunan sulit terwujud
+
+d.	Perencanaan tata ruang dan tata wilayah berjalan lancer
+
+
+
+7.	Bonus demografi adalah ….
+
+a.	Kondisi dimana komposisi jumlah penduduk yang berusia non produktif lebih besar dari pada usia produktif
+
+b.	Kondisi dimana komposisi jumlah penduduk yang berusia produktif lebih besar dari pada usia non produktif
+
+c.	Kondisi dimana komposisi jumlah penduduk yang berusia angkatan kerja lebih besar dari pada usia sekolah
+
+d.	Kondisi dimana komposisi jumlah penduduk yang berusia sekolah lebih besar dari pada usia angkatan kerja
+
+
+
+8.	Rentang usia produktif yaitu ….
+
+a.	Antara usia 15 tahun s/d 64 tahun@@@@
+
+b.	Antara usia 12 tahun s/d 56 tahun
+
+c.	Antara usia 20 tahun s/d 70 tahun
+
+d.	Antara usia 15 tahun s/d 56 tahun
+
+
+
+9.	Beberapa factor penentu keberhasilan bonus demografi antara lain ….
+
+a.	Pendidikan dan kesehatan
+
+b.	Lapangan kerja memadai
+
+c.	Pertumbuhan penduduk yang memadai
+
+d.	Jawaban a, b, dan c benar
+
+
+
+
+
+
+
+10.	Di bawah ini yang tidak termasuk dampak negative bonus demografi, yaitu ….
+
+a.	Munculnya pengangguran
+
+b.	Terjadinya keruskan lingkungan
+
+c.	Tenaga kerja asing akan mendominasi
+
+d.	Peluang mencari kerja sangat luas@@@
+
+
+
+11.	Beberapa dampak positif bonus demografi adalah ….
+
+a.	Memacu pertumbuhan ekonomi, munculnya daerah kumuh(slum), persaingan kerja sangat tajam
+
+b.	Pola fikir generasi muda lebih kreatif, memacu pertumbuhan ekonomi, mempersiapkan perencanaan pembangunan lebih baik.@@@
+
+c.	Persaingan kerja sangat tajam, pola fikir generasi muda sangat tergantung, mempersiapkan perencanaan pembangunan lebih baik.
+
+d.	Pola fikir generasi muda lebih kreatif, pertumbuhan ekonomi sulit terwujud, sulitnya melakukan perencanaan pembangunan yang baik
+
+
+
+12.	Beberapa upaya mengatasi terjadinya ledakan penduduk yaitu ….
+
+a.	Melaksanakan program KB, menggalakan program transmigrasi, meningkatkan SDM, memperluas lapangan kerja@@@
+
+b.	Melaksanakan program transmigrasi, membuka kesempatan kerja di luar negeri, pemerataan pembangunan
+
+c.	Melaksanakan program KB, menggalakan program transmigrasi, membuka lahan baru untuk pembangunan, memperluas jaringan komunikasi
+
+d.	Membuka lahan baru untuk pembangunan perusahaan, memperluas jaringan komunikasi, memperluas akses jalan menuju jalan tol
+
+
+
+13.	Munculnya kawasan slum (kawasan kumuh), kekurangan bahan pangan, meningkatnya kemiskinan dan kriminalitas, lapangan kerja sangat terbatas, meningkatnya kebutuhan ruang adalah dampak negative dari ….
+
+a.	Bonus Demografi
+
+b.	Mortalitas
+
+c.	Ledakan penduduk@@@@
+
+d.	Migrasi
+
+
+
+14.	Yang dimaksud dengan kualitas penduduk adalah....
+
+a.	Banyaknya penduduk sebagai akibat dari tingkat kelahiran yang tinggi
+
+b.	Banyaknya penduduk sebagai akibat dari tingkat kelahiran yang rendah
+
+c.	Keadaan penduduk dilihat dari segi pendidikan, kesehatan, dan kesejahteraan@@@@
+
+d.	Keadaan penduduk dilihat dari segi komposisi usia
+
+
+
+15.	Titik berat kecenderungan dinamika penduduk yaitu ….
+
+a.	Perkembangan jumlah penduduk@@@
+
+b.	Perkembangan jumlah kematian
+
+c.	Perkembangan angka harapan hidup
+
+d.	Perkembangan kualitas hidup
+
+
+
+16.	Kegiatan sensus penduduk dilakukan oleh pemerintah setiap …… tahun sekali
+
+a.	10 tahun sekali@@@
+
+b.	20 tahun seklai
+
+c.	1 tahun sekali
+
+d.	5 tahun seklai
+
+
+
+17.	Sistem yang dilaksanakan petugas pemerintahan di suatu wilayah untuk mencatat kelahiran, kematian, perkawinan, perceraian juga perubahan timpat tinggal atau migrasi, termasuk juga adopsi atau pengangkatan anak, disebut ….
+
+a.	Sensus penduduk
+
+b.	Survey penduduk
+
+c.	Registrasi penduduk@@@
+
+d.	Komposisi penduduk
+
+
+
+18.	Pengelompokkan penduduk berdasarkan beberapa kategori tertentu, disebut ….
+
+a.	Komposisi penduduk@@@
+
+b.	Suvrey penduduk
+
+c.	Sensus penduduk
+
+d.	Registrasi penduduk
+
+
+
+# SUMATIF 2
