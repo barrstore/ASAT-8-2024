@@ -1130,51 +1130,12 @@ a.	Komposisi penduduk@@@
 
 b.	Suvrey penduduk
 
-c.	Sensus penduduk
-
-d.	Registrasi penduduk
-
-
-
-# SUMATIF 2
 # SENI BUDAYA
-LATIHAN SOAL SENI BUDAYA KELAS 8
-
-
-
-Pilihlah salah satu jawaban yang paling tepat !
-
-1.	
-
-
-
- 
-
-1	
-
- 
-
-2	
-
- 
-
-3	
-
- 
-
-4
-
 Berdasarkan gambar di atas manakah motif ragam hias yang berasal dari Papua adalah….
-
 A.	1, 2, dan 4
-
 B.	2, 3, dan 4
-
-C.	1, 3, dan 4
-
+C.	1, 3, dan 4@@@11
 D.	1, 2, 3 dan 4
-
-
 
 2.	
 
@@ -1184,77 +1145,34 @@ D.	1, 2, 3 dan 4
 
 
 
-
-
-
-
-
-
-
-
 Dari tabel di atas, manakah yang termasuk motif ragam hias tradisional nusantara?
-
 A.	a, b, c, d, e, f, g
-
 B.	a, c, d, e, g
-
-C.	a, b, d, e, g
-
+C.	a, b, d, e, g@@@@
 D.	b, c, d, e, f
 
-
-
 3.	Ragam hias (ornamen) tradisional nusantara biasanya berfungsi untuk menghias (memperindah) benda- benda pakai (fungsional).
-
 Salah satu contoh motif ragam hias tradisional nusantara adalah motif geometris. berikut contoh motif ragam hias geometris yang tepat dibawah ini adalah...
-
-A.	Pilin, Swastika, dan Kawung
-
+A.	Pilin, Swastika, dan Kawung@@@@@
 B.	Tumpal, Keketusan Wangga, dan Wayang
-
 C.	Pepatran, Gajah, dan Kawung
-
 D.	Keketusan, Topeng, dan Wayang
 
-
-
 4.	Ragam hias Nusantara merupakan karya seni rupa yang di ambil dari berbagai macam motif. Apa yang di maksud ragam hias
-
-A.		Ragam hias adalah bentuk dasar hiasanya yang biasanya akan menjadi pola yang di ulang-ulang dalam suatu karya kerajinan,seni
-
+A.		Ragam hias adalah bentuk dasar hiasanya yang biasanya akan menjadi pola yang di ulang-ulang dalam suatu karya kerajinan,seni@@@@@
 B.	Ragam hias adalah komponen produk seni yang di tambahkan atau sengaja
-
 C.	Pola ragam hias tersusun berdasarkan keanekaragaman
-
 D.	Songket,ukiran, pahatan
-
  
-
 5.	Perlu ditekankan, bahwa ragam seni rupa nusantara disebut sebagai ragam hias tradisional karena hidup dan dikembangkan secara turun-temurun sebagai tradisi, baik bentuk maupun nilai-nilai filosofisnya.
-
 Filosofi apa yang terdapat pada motif ragam hias piring sedapur adalah....
-
 A.	Kehidupan sehari-hari rakyat pulau Madura
-
 B.	Petuah agar manusia tidak mudah menyerah
-
 C.	Kedekatan manusia dengan alam sekitar
+D.	Persatuan atau kekuatan@@@
 
-D.	Persatuan atau kekuatan
-
-
-
-6.	Motif ragam hias tradisional nusantara seperti motif geometris, motif tumbuhan (flora), motif binatang (fauna), motif manusia dan motif alam, dibawah ini yang merupakan ragam hiasa motif binatang adalah....
-
+6.	Motif ragam hias tradisional nusantara seperti motif geometris, motif tumbuhan (flora), motif binatang (fauna), motif manusia dan motif alam, dibawah ini yang merupakan ragam hiasa motif binatang adalah....C (GAMBAR MONYET) 
 A	B	C	D.
-
-
-
-
-
-
-
-
 
 
 
@@ -1264,172 +1182,88 @@ A	B	C	D.
 
 7.	Perhatikan Gambar di bawah ini!
 
-
-
 Dari manakah motif ragam hias tradisional nusantara ini berasal?
 
-
-
-A.	Solo
-
+A.	Solo@@@
 B.	Cirebon
-
 C.	Jawa Barat
-
 D.	Nusa tenggara
 
-
-
-8.	Diantara motif ragam hias dibawah mana yang memiliki bentuk geometris adalah....
-
+8.	Diantara motif ragam hias dibawah mana yang memiliki bentuk geometris adalah....D (KOTAK KOTAK) 
 A.	B.	C.	D.
 
-
-
 9.	Motif ragam hias kawung di ciptakan oleh seorang di kerajaan mataram, Ia menciptakan motif ini pada tahun 1593-1645, siapakah orang yang menciptakan motif ragam hias kawung tersebut?
-
 A.	Gajah Mada
-
 B.	Sri Dharmatungga
-
-C.	Hanyokrokusumo
-
+C.	Hanyokrokusumo@@@
 D.	Raja Sanjaya
-
  
-
 10.	Semua ragam motf tradisional nusantara mempunyai makna tersendiri diantaranya motif parang, singa barong, bunga tanjung, dan apakah makna dari motif mega mendung ?
-
 A.	Kesempurnaan dan Kesucian
-
 B.	Persatuan Dan Kesucian
-
 C.	Ketulusan dan Keramahan
-
-D.	Kesuburan dan Pemberi kehidupan
-
-
+D.	Kesuburan dan Pemberi kehidupan@@@
 
 11.	Perhatikan Tabel diatas ini!
 
-
-
 Pasangan yang tepat pada tabel diatas adalah....
-
 A.	A-6, B-5, C-4, D-1, E-2, F-3
-
-B.	A-3, B-1, C-2, D-6, E-4, F-5
-
+B.	A-3, B-1, C-2, D-6, E-4, F-5@@@
 C.	A-1, B-2, C-3, D-4, E-5, F-6
-
 D.	A-6, B-5, C-4, D-3, E-2, F-1
-
 12.	Di Solo banyak motif-motif yang unik dan menarik, contoh motif yang berasal dari Solo adalah…
-
 A.	Motif Mega Mendung
-
-B.	Motif Parang
-
+B.	Motif Parang@@@
 C.	Motif Pring Sedapur
-
 D.	Motif Singa Barong
 
-
-
 13.	Motif parang kusumo yang berasal dari Solo memiliki filosofi diantaranya adalah….
-
 A.	Kesuburan dan Pemberi kehidupan
-
 B.	Kekayaan,keindahan dan keanggunan alam
-
-C.	Jalinan yang tidak terputus dan selalu berkesinambungan
-
+C.	Jalinan yang tidak terputus dan selalu berkesinambungan@@@
 D.	Cinta dan kasih sayang yang selalu bersemi di antara pasangan
-
 14.	Setiap motif ragam hias pasti mempunyai filosofi dan makna tersendiri, dibawah ini makna motif ragam hias kawung yang benar adalah….
-
-A.		Setiap manusia harus dapat menahan amarah pada dirinya pada saat dalam kondisi terpuruk, sedih, dan tertekan
-
+A.		Setiap manusia harus dapat menahan amarah pada dirinya pada saat dalam kondisi terpuruk, sedih, dan tertekantertekan@@
 B.	Petuah agar manusia tidak mudah untuk menyerah
-
 C.	Kesempurnaan, kemurnian, dan kesucian
-
 D.	Kefasihan dan kelembutan
-
  
-
 15.	
-
 1	2	3	4
 
-
-
  	
-
  	
-
  	
-
  
-
 Berdasarkan gambar di atas manakah yang termasuk motif ragam hias sidomukti ? A. 1
-
 B. 3
-
-C. 2
-
+C. 2@@
 D. 4
-
 16.	Kebudayaan perunggu mempengaruhi pesatnya perkembangan motif hias diantaranya kebudayaan Dong Son, dari manakah datangnya kebudayaan ini?
-
 A.	Eropa
-
 B.	Afrika
-
-C.	Tiongkok
-
+C.	Tiongkok@@@
 D.	Asia tenggara
 
-
-
 17.	2 Oktober batik ditetapkan oleh UNESCO sebagai warisan budaya tak benda dalam sidang di Abu Dhabi. Masyarakat Indonesia patut bangga. motif ragam hias, yang merupakan salah satu warisan budaya Indonesia sudah dikenal secara mendunia.
-
 Dibawah ini manakah motif ragam hias yang diterapkan pada tekstil yang sampai mendunia ini?
-
 A.	Truntum,buketan
-
 B.	Betawi,sekar jagad
-
-C.	Kawung,mega mendung
-
+C.	Kawung,mega mendung@@@@
 D.	Bunga jeumpa,sidomukti
 
-
-
 18.	Mengapa ragam hias Parang yang diaplikasikan pada tekstil Yogyakarta adalah ragam hias yang paling kuat dibandingkan dengan motif ragam hias yang lain?
-
 A.	Karena motif ragam hias parang merupakan salah satu motif yang paling muda di Indonesia
-
-B.	Karena motif ragam hias parang merupakan salah satu motif yang paling tua di Indonesia
-
+B.	Karena motif ragam hias parang merupakan salah satu motif yang paling tua di Indonesia@@@
 C.	Karena motif ragam hias parang mudah dibuat
-
 D.	Karena motif ragam hias parang terkenal
-
 19.	Perhatikan gambar berikut ini
-
 Motif ragam hias asal papua diatas bernama cendrawasih, motif ini dijuluki sebagai “ Bird of paradise “ ini memiliki makna yaitu...
-
 A.	Keseimbangan Alam.
-
 B.	Kemurnian dan kesucian
-
 C.	Kekayaan sumber daya alam laut.
-
 D.	Kekayaan, keindahan dan keagungan alam dan fauna
-
- 
-
+@@@@ 
 20.	
 
 
@@ -1437,134 +1271,68 @@ D.	Kekayaan, keindahan dan keagungan alam dan fauna
 
 
 
-
-
-
-
-
-
-
 Perhatikan gambar di atas ini !
-
 Motif ragam hias tradisional nusantara ini mengandung kekayaan alam dari wisata alam pekalongan yang menggambarkan 7 motif yang berbeda- beda. Apakah nama motif ragam hias tersebut?.
-
 A.	Tujuh tangkai
-
 B.	Tujuh bunga
-
-C.	Tujuh rupa
-
+C.	Tujuh rupa@@@@
 D.	Tujuh alur
 
-
-
 21.	Apa yang di maksud ragam hias figuratif?
-
 A.		ragam hias yang menggunakan beraneka ragam unsur- unsur garis, seperti garis lurus, lengkung, zigzag, spiral, dan berbagai bidang seperti segi empat, persegi panjang, lingkaran, layang-layang, dan bentuk lainnya sebagai motif bentuk dasarnya
-
-B.	ragam hias yang bentuk objeknya didapatkan dari manusia. Ragam hias jenis ini biasanya terdapat pada bahan tekstil, maupun bahan kayu yang bermotif bagian tubuh atau bagian wajah manusia.
-
+B.	ragam hias yang bentuk objeknya didapatkan dari manusia. Ragam hias jenis ini biasanya terdapat pada bahan tekstil, maupun bahan kayu yang bermotif bagian tubuh atau bagian wajah manusia.@@@
 C.	pola hias yang di buat dengan di gambar, dipahat, dan dicetak, untuk mendukung meningkatnya kualitas dan nilai pada suatu benda atau karya seni.
-
 D.		motif hias yang dikembangkan dari bentuk-bentuk (susunan garis lurus yang terjalin membentuk rangkaian yang menyatu dan memiliki sudut dalam bentuk datar) kemudian digayakan dan disusun sesuai imajinasi pembuatnya.
-
 22.	Sidomukti adalah motif yang berasal dari Solo, motif pada kain ini memiliki warna merah soga atau coklat dan motif sidomukti ini juga sebagai simbol pengharapan dan doa yang dituangkan dalam ornamen pengisi dan isen-isennya. Sidomukti diambil dari Bahasa Jawa yang artinya...
-
 A.	Sido : Jadi, Mukti : Keren
-
-B.	Sido : Jadi, Mukti : Mulia
-
+B.	Sido : Jadi, Mukti : Mulia@@@
 C.	Sido : Bisa, Mukti : Sopan
-
 D.	Sido : Jadi, Mukti : Sopan
 
-
-
 23.	Perlu ditekankan, bahwa ragam seni rupa nusantara disebut sebagai ragam hias tradisional karena hidup dan dikembangkan secara turun-temurun sebagai tradisi, baik bentuk maupun nilai-nilai filosofisnya. Ragam hias (ornamen) tradisional nusantara biasanya berfungsi untuk menghias (memperindah) benda-benda pakai (fungsional).
-
 Motif ragam hias tradisional nusantara dikelompokkan menjadi 5. Sebutkan motif ragam hias tradisional Nusantara!
-
-A.	Motif geometris, motif tumbuhan, motif pilin, motif kawung, motif pilin ganda
-
+A.	Motif geometris, motif tumbuhan, motif pilin, motif kawung, motif pilin ganda@@@
 B.	Motif geometris, motif tumbuhan, motif binatang, motif manusia, motif alam
-
 C.	Motif binatang, motif bunga, motif tumpal, motif kawung, motif pilin
-
 D.	Motif manusia, motif alam, motif Swastika ganda, motif Swastika
-
 24.	Ragam hias geometris merupakan ragam hias yang memakai berbagai macam unsur garis. Mulai dari garis lurus, spiral, lengkung, zigzag dan berbagai bagian, misalnya segi empat, lingkaran, persegi panjang dan wujud-wujud lain yang juga sebagai motif wujud yang dasar. Gambar berbagai macan ragam hias ada banyak macamnya. berikut ini termasuk gambar pola geometris dalam ragam hias adalah....
-
 A.	Kawung
-
 B.	Pilin
-
-C.	Koplikan
-
+C.	Koplikan@@@
 D.	Tumpal
-
  
-
 25.	kebudayaan perunggu memengaruhi pesatnya perkembangan motif hias. Di antaranya kebudayaan Dong Son yang datang dari Tiongkok, dengan ragam hias pilin, swastika maupun meander (Jawa: banji). Pengaruh Tiongkok Selatan dan China Utara sebagai cikal bakal nenek moyang kita menjadi titik awal perkembangan seni ragam hias di Indonesia. Kebudayaan neolitikum dan perunggu inilah yang menjadi dasar bagi kebudayaan seni rupa di Indonesia.
-
 Pada tahun berapa budaya Dong Son mempengaruhi motif ragam hias?
-
 A.	100-200 M
-
-B.	500-300 SM
-
+B.	500-300 SM@@@@
 C.	600-300 SM
-
 D.	500-100 M
 
-
-
 26.	Kebudayaan perunggu memengaruhi pesatnya perkembangan motif hias. Di antaranya kebudayaan Dong Son. Motif ragam hias apa yang dibawa oleh budaya Dong son?
-
-A.	Pilin, swastika, meander (jawa:banji)
-
+A.	Pilin, swastika, meander (jawa:banji)@@@@
 B.	Pilin, swastika, meander (jawa:banji), merak
-
 C.	Pilin, swastika, meander (jawa:banji), cendrawasih
-
 D.	Pilin, swastika, meander (jawa:banji), bunga jumpa
 
-
-
 27.	Ragam hias fauna adalah hasil karya objek dan karya seninya didasarkan dari bentuk-bentuk binatang. Dalam pembuatannya, ragam hias jenis fauna juga suka dikombinasikan dengan jenis fauna tanpa mengurangi bentuk aslinya. Ragam hias bentuk fauna dapat dijadikan saranan untuk memperkenalkan kearifan lokal daerah tertentu sebagai contoh adalah motif burung cendrawasih dari daerah.....
-
 A.	Bali
-
-B.	Papua
-
+B.	Papua@@@
 C.	Lampung
-
 D.	Nusa tenggara
 
-
-
 28.	Motif ragam hias merak ngibing dari Tasikmalaya termasuk motif fauna yang menggambarkan....
-
-A.	sepasang merak berhadap-hadapan dengan ekor terkembang
-
+A.	sepasang merak berhadap-hadapan dengan ekor terkembang@@@
 B.	sepasang merak berhadap-hadapan dengan ekor terkuncup
-
 C.	seekor merak berhadap-hadapan dengan ekor terkembang
-
 D.	seekor merak berhadap-hadapan dengan ekor terkuncup
 
 
-
-
-
 29.	Betikut yang bukan merupakan teknik-teknik dalam penerapan ragam hias pada bahan tekstil yaitu...
-
 A.	teknik menyulam
-
 B.	teknik membatik
-
 C.	teknik menemun
+D.	teknik dusel@@@
 
-D.	teknik dusel
 
 
 
